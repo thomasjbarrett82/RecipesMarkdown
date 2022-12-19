@@ -1,0 +1,1 @@
+for %F in (*.docx) do .\pandoc.exe "%F" -f docx -t markdown_strict -s -o "%~nF.md"
