@@ -1,3 +1,7 @@
+# 
+
+## INGREDIENTS
+
 - 1 lb. dried beans
 
 - 2 + 3 cups broth

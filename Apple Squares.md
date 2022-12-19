@@ -1,24 +1,28 @@
-- Crust:
+# 
 
-    - 2 ½ cups flour
+## INGREDIENTS
 
-    - ½ tsp. salt
+### Crust
 
-    - 1 cup shortening
+  - 2 ½ cups flour
 
-    - 2 egg yolks
+  - ½ tsp. salt
 
-    - ¼ cup milk
+  - 1 cup shortening
+
+  - 2 egg yolks
+
+  - ¼ cup milk
 
 - 1 cup crushed corn flakes
 
 - Filling:
 
-    - 5 cups apple, diced
+  - 5 cups apple, diced
 
-    - 1 cup sugar
+  - 1 cup sugar
 
-    - 1 ½ tsp. cinnamon
+  - 1 ½ tsp. cinnamon
 
 - 2 egg whites
 

@@ -2,31 +2,31 @@
 
 - Brine (optional):
 
-    - ¾ cup vinegar
+  - ¾ cup vinegar
 
-    - 2 cups water
+  - 2 cups water
 
-    - ¼ cup kosher salt
+  - ¼ cup kosher salt
 
 - Marinade:
 
-    - 2 tbsp. curry
+  - 2 tbsp. curry
 
-    - 1 tbsp. smoked paprika
+  - 1 tbsp. smoked paprika
 
-    - 1 tsp. onion powder
+  - 1 tsp. onion powder
 
-    - 1 tbsp. garlic
+  - 1 tbsp. garlic
 
-    - 1 tbsp. ginger
+  - 1 tbsp. ginger
 
-    - 1 tsp. cumin
+  - 1 tsp. cumin
 
-    - 1 tsp. cinnamon
+  - 1 tsp. cinnamon
 
-    - 1 tsp. black pepper
+  - 1 tsp. black pepper
 
-    - 2 tbsp. EVOO
+  - 2 tbsp. EVOO
 
 ## PREP
 

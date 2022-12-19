@@ -26,7 +26,7 @@
 
 - 2 lbs. uncooked tail-on shrimp
 
-    - Can also use whole crabs or crawfish
+  - Can also use whole crabs or crawfish
 
 ## PREP
 

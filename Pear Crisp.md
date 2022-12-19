@@ -1,28 +1,28 @@
 - FILLING:
 
-    - 6 cups pears, peeled and sliced
+  - 6 cups pears, peeled and sliced
 
-    - 1 tsp. vanilla extract
+  - 1 tsp. vanilla extract
 
-    - ½ tsp. nutmeg
+  - ½ tsp. nutmeg
 
-    - ½ tsp. salt
+  - ½ tsp. salt
 
 - TOPPING:
 
-    - 1 stick butter, softened
+  - 1 stick butter, softened
 
-    - ½ cup A/P flour
+  - ½ cup A/P flour
 
-    - ½ cup rolled oats
+  - ½ cup rolled oats
 
-    - ½ cup sugar
+  - ½ cup sugar
 
-    - ½ cup brown sugar
+  - ½ cup brown sugar
 
-    - ½ cup pecans, finely chopped
+  - ½ cup pecans, finely chopped
 
-    - ½ tsp. salt
+  - ½ tsp. salt
 
 - Optional vanilla ice cream & caramel sauce for serving
 

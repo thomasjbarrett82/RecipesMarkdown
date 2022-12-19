@@ -16,13 +16,13 @@
 
 - OPTIONAL:
 
-    - 2 jalapeños, minced
+  - 2 jalapeños, minced
 
-    - 1 cup shredded Cheddar
+  - 1 cup shredded Cheddar
 
-    - ½# cooked bacon, crumbled
+  - ½# cooked bacon, crumbled
 
-    - 1 cup sweet corn kernels
+  - 1 cup sweet corn kernels
 
 ## PREP
 

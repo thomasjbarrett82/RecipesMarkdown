@@ -18,6 +18,6 @@
 
 - Sprinkle with powdered sugar while mixing
 
-    - Alternately, toss in a large paper bag with sugar
+  - Alternately, toss in a large paper bag with sugar
 
 - Spread onto cookie sheet to cool

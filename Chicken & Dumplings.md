@@ -16,15 +16,15 @@
 
 - DUMPLINGS
 
-    - 1 ½ cup flour
+  - 1 ½ cup flour
 
-    - 3 tsp baking powder
+  - 3 tsp baking powder
 
-    - ½ tsp salt
+  - ½ tsp salt
 
-    - ¾ cup milk
+  - ¾ cup milk
 
-    - 1 tsp parsley, minced
+  - 1 tsp parsley, minced
 
 ## DIRECTIONS
 

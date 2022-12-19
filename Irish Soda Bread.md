@@ -10,13 +10,13 @@
 
 - Optional ingredients:
 
-    - Add 1 cup oats and reduce flour by ½ cup
+  - Add 1 cup oats and reduce flour by ½ cup
 
-    - Raisins
+  - Raisins
 
-    - Seeds
+  - Seeds
 
-    - Herbs
+  - Herbs
 
 ## PREP
 

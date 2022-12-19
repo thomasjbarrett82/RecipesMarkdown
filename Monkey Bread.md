@@ -18,7 +18,7 @@
 
 - Cut biscuits into quarters
 
-    - (optional: mix in chopped pecans)
+  - (optional: mix in chopped pecans)
 
 - Melt remaining ingredients in saucepan
 

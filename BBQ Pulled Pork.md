@@ -1,3 +1,7 @@
+# 
+
+## INGREDIENTS
+
 - 1 whole pork butt, 5-7 pounds
 
 - 1 T. paprika

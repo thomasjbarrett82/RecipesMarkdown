@@ -1,22 +1,22 @@
 - MARINADE:
 
-    - 3 cloves garlic, minced
+  - 3 cloves garlic, minced
 
-    - ½ tsp ginger
+  - ½ tsp ginger
 
-    - ¼ cup soy sauce
+  - ¼ cup soy sauce
 
-    - Dash of lemon juice
+  - Dash of lemon juice
 
-    - ¾ cup olive oil
+  - ¾ cup olive oil
 
-    - ½ tsp red pepper flakes
+  - ½ tsp red pepper flakes
 
-    - ½ tsp salt
+  - ½ tsp salt
 
-    - ¼ tsp pepper
+  - ¼ tsp pepper
 
-    - 3 tbsp chopped cilantro
+  - 3 tbsp chopped cilantro
 
 - 2 tbsp olive oil
 

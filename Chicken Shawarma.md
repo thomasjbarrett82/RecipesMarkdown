@@ -1,54 +1,54 @@
 - Chicken Shawarma
 
-    - ½ cup EVOO
+  - ½ cup EVOO
 
-    - ¼ cup lemon juice
+  - ¼ cup lemon juice
 
-    - 1 tbsp. smoked paprika
+  - 1 tbsp. smoked paprika
 
-    - ½ tsp. turmeric
+  - ½ tsp. turmeric
 
-    - 1 tbsp. cumin
+  - 1 tbsp. cumin
 
-    - ½ tsp. cinnamon
+  - ½ tsp. cinnamon
 
-    - 1 tsp. red pepper flakes
+  - 1 tsp. red pepper flakes
 
-    - 5 cloves garlic, minced
+  - 5 cloves garlic, minced
 
-    - 2 tsp. black pepper
+  - 2 tsp. black pepper
 
-    - 1 tbsp. kosher salt
+  - 1 tbsp. kosher salt
 
-    - 1 small red onion, diced
+  - 1 small red onion, diced
 
-    - 4 lbs. chicken thighs, boneless and skinless
+  - 4 lbs. chicken thighs, boneless and skinless
 
 - Greek Salad
 
-    - 1 English cucumber, cubed
+  - 1 English cucumber, cubed
 
-    - 1 small red onion, diced
+  - 1 small red onion, diced
 
-    - 1 green bell pepper, diced
+  - 1 green bell pepper, diced
 
-    - 2 cups fresh tomatoes, diced
+  - 2 cups fresh tomatoes, diced
 
-    - 1 ½ cup feta cheese, crumbled
+  - 1 ½ cup feta cheese, crumbled
 
-    - ¾ cup kalamata olives, pitted
+  - ¾ cup kalamata olives, pitted
 
-    - 2 cloves garlic, minced
+  - 2 cloves garlic, minced
 
-    - ¼ cup red wine vinegar
+  - ¼ cup red wine vinegar
 
-    - ¼ cup EVOO
+  - ¼ cup EVOO
 
-    - 2 tbsp. lemon juice
+  - 2 tbsp. lemon juice
 
-    - 1 tbsp. oregano
+  - 1 tbsp. oregano
 
-    - ½ tsp. black pepper
+  - ½ tsp. black pepper
 
 - Plain Greek yogurt
 

@@ -2,13 +2,13 @@
 
 - Brine:
 
-    - 8 cups cold water
+  - 8 cups cold water
 
-    - 2 tbsp. salt
+  - 2 tbsp. salt
 
-    - 1 tbsp. sugar
+  - 1 tbsp. sugar
 
-    - 2 tbsp. white vinegar
+  - 2 tbsp. white vinegar
 
 - Beef tallow or lard
 

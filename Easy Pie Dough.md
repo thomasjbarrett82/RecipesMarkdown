@@ -14,7 +14,7 @@
 
 - Add butter pieces and squish with fingers to combine with flour
 
-    - Can also use a food processor
+  - Can also use a food processor
 
 - Sprinkle with water/vodka and fold until flour is moistened
 

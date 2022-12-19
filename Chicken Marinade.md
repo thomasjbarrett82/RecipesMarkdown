@@ -28,7 +28,7 @@
 
 - Combine everything except chicken and whisk together
 
-    - Optional: remove ½ cup of marinade for basting later
+  - Optional: remove ½ cup of marinade for basting later
 
 - Place chicken in large Ziploc bag and pour marinade over top
 

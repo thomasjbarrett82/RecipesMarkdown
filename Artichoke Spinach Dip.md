@@ -1,3 +1,7 @@
+# 
+
+## INGREDIENTS
+
 - 10 ounce box frozen chopped spinach, thawed and drained
 
 - 14 ounce can artichoke hearts, drained

@@ -1,3 +1,7 @@
+# Almond Bark Crunch
+
+## INGREDIENTS
+
 - 1 lb. white almond bark
 
 - 1 cup salted mixed nuts or peanuts

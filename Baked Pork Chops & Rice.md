@@ -1,3 +1,7 @@
+# 
+
+## INGREDIENTS
+
 - 6 pork chops
 
 - 3 cups cooked rice
@@ -16,7 +20,7 @@
 
 - Sear the pork chops before placing in rice for extra flavor
 
-    - Shorten the baking time to 25 minutes
+  - Shorten the baking time to 25 minutes
 
 ## DIRECTIONS
 

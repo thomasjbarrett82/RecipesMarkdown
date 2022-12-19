@@ -36,4 +36,4 @@
 
 - Cook on LOW for 4-6 hours
 
-    - Or bake at 350° F for 45 minutes
+  - Or bake at 350° F for 45 minutes

@@ -1,3 +1,7 @@
+# 
+
+## INGREDIENTS
+
 - 5 lbs. apples, peeled, cored, and sliced ½ inch thick (Golden
     Delicious or Braeburn) (2.25 kg.)
 

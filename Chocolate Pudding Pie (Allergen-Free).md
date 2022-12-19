@@ -1,29 +1,29 @@
 - Crust: (Use pre-made chocolate or graham crust to save time, if
     desired)
 
-    - 5 ounces chocolate cookie wafers OR allergen-free cookie wafers
+  - 5 ounces chocolate cookie wafers OR allergen-free cookie wafers
 
-    - ¼ cup ground almonds
+  - ¼ cup ground almonds
 
-    - 3 tbsp. unsalted butter OR butter substitute, melted
+  - 3 tbsp. unsalted butter OR butter substitute, melted
 
-    - 2 tbsp. water
+  - 2 tbsp. water
 
-    - ¼ cup shredded coconut
+  - ¼ cup shredded coconut
 
 - Filling:
 
-    - ¾ cup sugar
+  - ¾ cup sugar
 
-    - ¼ cup + 2 tbsp. unsweetened cocoa powder
+  - ¼ cup + 2 tbsp. unsweetened cocoa powder
 
-    - ¼ cup cornstarch
+  - ¼ cup cornstarch
 
-    - 2 cups skim milk OR milk substitute
+  - 2 cups skim milk OR milk substitute
 
-    - 2 oz. semisweet chocolate, chopped
+  - 2 oz. semisweet chocolate, chopped
 
-    - 2 tsp. vanilla extract
+  - 2 tsp. vanilla extract
 
 ## PREP
 

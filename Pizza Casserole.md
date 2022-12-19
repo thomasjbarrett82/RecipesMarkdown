@@ -35,7 +35,7 @@
 - Repeat the layering with the remaining pasta, sauce, pepperoni, &
     cheese
 
-    - Make sure all pasta is covered
+  - Make sure all pasta is covered
 
 - Cover with foil and bake for 25 minutes
 

@@ -4,17 +4,17 @@
 
 ### CHICKEN MARINADE
 
-    - 2 tbsp. lemon juice
+  - 2 tbsp. lemon juice
 
-    - 1 tbsp. fresh oregano
+  - 1 tbsp. fresh oregano
 
-    - 1 tsp. cumin
+  - 1 tsp. cumin
 
-    - 3 garlic cloves, minced
+  - 3 garlic cloves, minced
 
-    - ½ cup EVOO
+  - ½ cup EVOO
 
-    - Salt & pepper
+  - Salt & pepper
 
 - 2 lbs. boneless skinless chicken, chopped
 
@@ -22,31 +22,31 @@
 
 ### RICE
 
-    - 2 tbsp. butter
+  - 2 tbsp. butter
 
-    - 1 tsp. turmeric
+  - 1 tsp. turmeric
 
-    - 1 tsp. cumin
+  - 1 tsp. cumin
 
-    - 1 ½ cups white rice
+  - 1 ½ cups white rice
 
-    - 2 ½ cups chicken broth
+  - 2 ½ cups chicken broth
 
 ### WHITE SAUCE
 
-    - ½ cup mayo
+  - ½ cup mayo
 
-    - ½ cup plain Greek yogurt
+  - ½ cup plain Greek yogurt
 
-    - 1 tbsp. sugar
+  - 1 tbsp. sugar
 
-    - 2 tbsp. vinegar
+  - 2 tbsp. vinegar
 
-    - 1 tsp. lemon juice
+  - 1 tsp. lemon juice
 
-    - ¼ cup fresh parsley
+  - ¼ cup fresh parsley
 
-    - Salt & pepper
+  - Salt & pepper
 
 - Shredded lettuce
 

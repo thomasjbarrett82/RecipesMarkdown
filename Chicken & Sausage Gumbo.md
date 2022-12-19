@@ -54,7 +54,7 @@
 - Once roux is desired color, remove from oven and place over medium
     heat
 
-    - Move to large pot if not already
+  - Move to large pot if not already
 
 - Add onions, celery, peppers, and garlic and cook for 5 minutes
 

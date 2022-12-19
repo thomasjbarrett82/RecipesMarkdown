@@ -1,3 +1,7 @@
+# 
+
+## INGREDIENTS
+
 - 1 lb. chicken wings, cut into drumettes and flats
 
 - 1 tsp baking powder

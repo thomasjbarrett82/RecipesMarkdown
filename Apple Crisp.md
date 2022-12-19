@@ -1,3 +1,7 @@
+# Apple Crisp
+
+## INGREDIENTS
+
 - 6 large apples, peeled and sliced
 
 - 3 tbsp. white sugar

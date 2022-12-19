@@ -2,21 +2,21 @@
 
 - Custard:
 
-    - 2 cups half & half
+  - 2 cups half & half
 
-    - 5 eggs
+  - 5 eggs
 
-    - 3 tbsp brown sugar
+  - 3 tbsp brown sugar
 
-    - 1 tsp cinnamon
+  - 1 tsp cinnamon
 
-    - 1 tsp nutmeg
+  - 1 tsp nutmeg
 
-    - 1 tsp vanilla extract
+  - 1 tsp vanilla extract
 
-    - 2 tbsp brown alcohol (any)
+  - 2 tbsp brown alcohol (any)
 
-    - 3 tbsp melted butter
+  - 3 tbsp melted butter
 
 - Optional: 2 handfuls of chopped pecans
 

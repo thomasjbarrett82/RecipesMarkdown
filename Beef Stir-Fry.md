@@ -2,17 +2,17 @@
 
 - Marinade:
 
-    - 2 T. soy sauce
+  - 2 T. soy sauce
 
-    - 1 T. minced garlic
+  - 1 T. minced garlic
 
-    - 1 T. minced ginger
+  - 1 T. minced ginger
 
-    - 1 T. rice vinegar
+  - 1 T. rice vinegar
 
-    - 1 t. crushed red pepper
+  - 1 t. crushed red pepper
 
-    - 1 T. cornstarch
+  - 1 T. cornstarch
 
 - 1 T. + 1 T. + 1 T. vegetable oil
 

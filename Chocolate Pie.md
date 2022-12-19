@@ -1,26 +1,26 @@
 - Crust
 
-    - 1 ½ cups graham cracker crumbs
+  - 1 ½ cups graham cracker crumbs
 
-    - 2 tbsp. sugar
+  - 2 tbsp. sugar
 
-    - 1 tbsp. brown sugar
+  - 1 tbsp. brown sugar
 
-    - 1 stick butter, melted
+  - 1 stick butter, melted
 
 - Filling
 
-    - 1 stick butter
+  - 1 stick butter
 
-    - 4 ounces Scharffen Berger’s baking chocolate
+  - 4 ounces Scharffen Berger’s baking chocolate
 
-    - 1 ¼ cup sugar
+  - 1 ¼ cup sugar
 
-    - 1 4 oz. can evaporated milk
+  - 1 4 oz. can evaporated milk
 
-    - 1/8 tsp. ground nutmeg
+  - 1/8 tsp. ground nutmeg
 
-    - 2 eggs
+  - 2 eggs
 
 ## PREP
 

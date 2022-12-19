@@ -4,19 +4,19 @@
 
 ### GLAZE
 
-    - 1 cup brown sugar
+  - 1 cup brown sugar
 
-    - ¼ cup honey
+  - ¼ cup honey
 
-    - 1 tbsp. Dijon mustard
+  - 1 tbsp. Dijon mustard
 
-    - 1 tbsp. Worcestershire sauce
+  - 1 tbsp. Worcestershire sauce
 
-    - 1 tsp. cinnamon
+  - 1 tsp. cinnamon
 
-    - 1 tsp. ginger
+  - 1 tsp. ginger
 
-    - 1 tbsp. BBQ rub mix
+  - 1 tbsp. BBQ rub mix
 
 ## PREP
 
@@ -32,7 +32,7 @@
 
 - Continue cooking at 300 F for 2 more hours
 
-    - Transfer to oven if not possible in the smoker
+  - Transfer to oven if not possible in the smoker
 
 - Mix glaze ingredients in small pot over low heat
 

@@ -24,7 +24,7 @@
 
 - Cook pasta according to box, drain and set aside
 
-    - Stir in a little olive oil to keep from sticking
+  - Stir in a little olive oil to keep from sticking
 
 - Heat olive oil in pot
 

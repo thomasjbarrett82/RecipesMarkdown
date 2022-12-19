@@ -1,14 +1,14 @@
 - Filling:
 
-    - 6 oz. chocolate chips
+  - 6 oz. chocolate chips
 
-    - 8 oz. cream cheese
+  - 8 oz. cream cheese
 
-    - 1 egg
+  - 1 egg
 
-    - 1/3 cup sugar
+  - 1/3 cup sugar
 
-    - 1/8 tsp. salt
+  - 1/8 tsp. salt
 
 - 1 ½ cup flour
 

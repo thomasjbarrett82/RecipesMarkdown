@@ -1,36 +1,36 @@
 - <u>Crust</u>
 
-    - 1 ¾ cups graham cracker crumbs
+  - 1 ¾ cups graham cracker crumbs
 
-    - 8 tbsp (1 stick) butter, melted
+  - 8 tbsp (1 stick) butter, melted
 
-    - 1/3 cup sugar
+  - 1/3 cup sugar
 
 - <u>Filling</u>
 
-    - 1 cup sugar
+  - 1 cup sugar
 
-    - ¼ cup cornstarch
+  - ¼ cup cornstarch
 
-    - ½ tsp kosher salt
+  - ½ tsp kosher salt
 
-    - 2 cups whole milk
+  - 2 cups whole milk
 
-    - 4 large egg yolks
+  - 4 large egg yolks
 
-    - 2 tbsp butter, soft and cut into pieces
+  - 2 tbsp butter, soft and cut into pieces
 
-    - 2 tsp vanilla extract
+  - 2 tsp vanilla extract
 
 - <u>Meringue</u>
 
-    - 4 large egg whites
+  - 4 large egg whites
 
-    - ¼ tsp cream of tarter OR white vinegar
+  - ¼ tsp cream of tarter OR white vinegar
 
-    - 6 tbsp sugar
+  - 6 tbsp sugar
 
-    - ½ tsp vanilla extract
+  - ½ tsp vanilla extract
 
 ## PREP
 

@@ -1,36 +1,36 @@
 - FOR THE CRUST
 
-    - 1 ½ cups crushed GF graham crackers
+  - 1 ½ cups crushed GF graham crackers
 
-    - 2 T water
+  - 2 T water
 
-    - 3 T butter substitute, melted
+  - 3 T butter substitute, melted
 
 - FOR THE FILLING
 
-    - 1/3 cup rice milk
+  - 1/3 cup rice milk
 
-    - 3 tsp powdered egg substitute
+  - 3 tsp powdered egg substitute
 
-    - 2 cups unsweetened pumpkin puree (1 can)
+  - 2 cups unsweetened pumpkin puree (1 can)
 
-    - ¾ cup firmly packed brown sugar
+  - ¾ cup firmly packed brown sugar
 
-    - 2 tbsp GF flour
+  - 2 tbsp GF flour
 
-    - ½ tsp salt
+  - ½ tsp salt
 
-    - 1 ½ tsp ground cinnamon
+  - 1 ½ tsp ground cinnamon
 
-    - ¼ tsp ground nutmeg
+  - ¼ tsp ground nutmeg
 
-    - ¼ tsp ground ginger
+  - ¼ tsp ground ginger
 
-    - ¼ tsp ground allspice
+  - ¼ tsp ground allspice
 
-    - 1 cup coconut creamer
+  - 1 cup coconut creamer
 
-    - 2 tsp pure vanilla extract
+  - 2 tsp pure vanilla extract
 
 ## PREP
 
@@ -40,26 +40,26 @@
 
 - PREPARE CRUST:
 
-    - Place crackers in food processor and pulse until finely ground
+  - Place crackers in food processor and pulse until finely ground
 
-    - Add water & butter, pulse until combined
+  - Add water & butter, pulse until combined
 
-    - Press into pie plate and up sides
+  - Press into pie plate and up sides
 
-    - Bake 4-6 minutes, until set and lightly golden
+  - Bake 4-6 minutes, until set and lightly golden
 
-    - Remove to cool
+  - Remove to cool
 
 - PREPARE FILLING:
 
-    - In large bowl, whisk together rice milk and egg substitute
+  - In large bowl, whisk together rice milk and egg substitute
 
-    - Whisk in remaining ingredients until well combined
+  - Whisk in remaining ingredients until well combined
 
-    - Pour mixture into pie plate
+  - Pour mixture into pie plate
 
-    - Back until filling is set but slightly wobbly in center
+  - Back until filling is set but slightly wobbly in center
 
-        - 40-45 minutes
+      - 40-45 minutes
 
-        - Toothpick inserted into center will come out mostly clean
+      - Toothpick inserted into center will come out mostly clean

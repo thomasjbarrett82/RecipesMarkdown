@@ -20,11 +20,11 @@
 
 - Frosting:
 
-    - 2 cups powdered sugar
+  - 2 cups powdered sugar
 
-    - 1 ½ tsp. grated orange rind
+  - 1 ½ tsp. grated orange rind
 
-    - 1/3 cup orange juice
+  - 1/3 cup orange juice
 
 ## PREP
 
