@@ -1,43 +1,43 @@
--   15-20 medium mushrooms
+- 15-20 medium mushrooms
 
--   1 tbsp. butter
+- 1 tbsp. butter
 
--   2 cloves garlic, minced
+- 2 cloves garlic, minced
 
--   2 cups fresh spinach, chopped
+- 2 cups fresh spinach, chopped
 
--   8 ounces cream cheese, softened
+- 8 ounces cream cheese, softened
 
--   ¼ cup breadcrumbs
+- ¼ cup breadcrumbs
 
--   ½ cup shredded Parmesan
+- ½ cup shredded Parmesan
 
--   1 tsp. kosher salt
+- 1 tsp. kosher salt
 
--   ½ tsp. black pepper
+- ½ tsp. black pepper
 
-**PREP**
+## PREP
 
--   Heat oven to 350 F
+- Heat oven to 350 F
 
--   Remove stems from mushrooms and mince
+- Remove stems from mushrooms and mince
 
--   Arrange the tops on a baking sheet
+- Arrange the tops on a baking sheet
 
-**DIRECTIONS**
+## DIRECTIONS
 
--   Melt the butter in a large pan
+- Melt the butter in a large pan
 
--   Sauté the garlic and mushroom stems for 2 minutes
+- Sauté the garlic and mushroom stems for 2 minutes
 
--   Add the spinach and cook until wilted
+- Add the spinach and cook until wilted
 
--   Add cream cheese, salt, pepper and cook until melted
+- Add cream cheese, salt, pepper and cook until melted
 
--   Stir in the breadcrumbs and Parmesan and remove from heat
+- Stir in the breadcrumbs and Parmesan and remove from heat
 
--   Fill each mushroom with a spoonful of mixture
+- Fill each mushroom with a spoonful of mixture
 
--   Bake for 15 minutes until golden brown
+- Bake for 15 minutes until golden brown
 
--   Cool and serve
+- Cool and serve

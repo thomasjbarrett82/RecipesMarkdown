@@ -1,45 +1,45 @@
--   2 medium butternut squash (or other winter squash)
+- 2 medium butternut squash (or other winter squash)
 
--   12-15 cloves garlic, peeled
+- 12-15 cloves garlic, peeled
 
--   2 + 2 tbsp olive oil
+- 2 + 2 tbsp olive oil
 
--   ½ yellow onion
+- ½ yellow onion
 
--   6 cups vegetable broth
+- 6 cups vegetable broth
 
--   Salt & pepper
+- Salt & pepper
 
--   2 tbsp sliced green onion
+- 2 tbsp sliced green onion
 
-**PREP**
+## PREP
 
--   Heat oven to 350° F
+- Heat oven to 350° F
 
-**DIRECTIONS**
+## DIRECTIONS
 
--   Cut squash in half length-wise
+- Cut squash in half length-wise
 
--   Place on baking pan cut-side up and drizzle with 2 tbsp olive oil
+- Place on baking pan cut-side up and drizzle with 2 tbsp olive oil
 
--   Toss garlic and onion with remaining oil
+- Toss garlic and onion with remaining oil
 
--   Spread on baking pan around squash
+- Spread on baking pan around squash
 
--   Roast until golden brown, 50-60 minutes
+- Roast until golden brown, 50-60 minutes
 
--   Remove from oven and let cool
+- Remove from oven and let cool
 
--   Chop onion and remove squash flesh from skin and chop
+- Chop onion and remove squash flesh from skin and chop
 
--   Transfer to large pot and add broth
+- Transfer to large pot and add broth
 
--   Puree with an immersion blender until barely chunky
+- Puree with an immersion blender until barely chunky
 
--   OR use food processor or blender
+- OR use food processor or blender
 
--   Add green onions
+- Add green onions
 
--   Season to taste
+- Season to taste
 
--   Serves 6-8
+- Serves 6-8

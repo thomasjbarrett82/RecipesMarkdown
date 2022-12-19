@@ -1,41 +1,41 @@
--   28 ounces pitted cherries (fresh or frozen)
+- 28 ounces pitted cherries (fresh or frozen)
 
--   2 tbsp. lemon juice
+- 2 tbsp. lemon juice
 
--   1 cup sugar
+- 1 cup sugar
 
--   1 tsp. kosher salt
+- 1 tsp. kosher salt
 
--   1/3 cup tapioca starch
+- 1/3 cup tapioca starch
 
-**PREP**
+## PREP
 
--   Prep the pie dough for a 2-crust pie
+- Prep the pie dough for a 2-crust pie
 
--   Pre-heat oven to 400° F
+- Pre-heat oven to 400° F
 
-**DIRECTIONS**
+## DIRECTIONS
 
--   Whisk the sugar, salt, and starch together
+- Whisk the sugar, salt, and starch together
 
--   Whisk in the lemon juice
+- Whisk in the lemon juice
 
--   Mix with the cherries until fully combined
+- Mix with the cherries until fully combined
 
--   Refrigerate for at least 30 minutes
+- Refrigerate for at least 30 minutes
 
--   Pour into prepared pie crust
+- Pour into prepared pie crust
 
--   Cover with second crust
+- Cover with second crust
 
--   Place pie on a parchment-lined baking sheet
+- Place pie on a parchment-lined baking sheet
 
--   Bake for 50 minutes
+- Bake for 50 minutes
 
--   Tent with foil
+- Tent with foil
 
--   Bake for 15 minutes
+- Bake for 15 minutes
 
--   Remove and let cool for ~3 hours
+- Remove and let cool for ~3 hours
 
--   Serve with whipped cream or vanilla ice cream
+- Serve with whipped cream or vanilla ice cream

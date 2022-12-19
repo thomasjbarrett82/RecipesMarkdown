@@ -1,65 +1,65 @@
--   Crust: (Use pre-made chocolate or graham crust to save time, if
+- Crust: (Use pre-made chocolate or graham crust to save time, if
     desired)
 
-    -   5 ounces chocolate cookie wafers OR allergen-free cookie wafers
+    - 5 ounces chocolate cookie wafers OR allergen-free cookie wafers
 
-    -   ¼ cup ground almonds
+    - ¼ cup ground almonds
 
-    -   3 tbsp. unsalted butter OR butter substitute, melted
+    - 3 tbsp. unsalted butter OR butter substitute, melted
 
-    -   2 tbsp. water
+    - 2 tbsp. water
 
-    -   ¼ cup shredded coconut
+    - ¼ cup shredded coconut
 
--   Filling:
+- Filling:
 
-    -   ¾ cup sugar
+    - ¾ cup sugar
 
-    -   ¼ cup + 2 tbsp. unsweetened cocoa powder
+    - ¼ cup + 2 tbsp. unsweetened cocoa powder
 
-    -   ¼ cup cornstarch
+    - ¼ cup cornstarch
 
-    -   2 cups skim milk OR milk substitute
+    - 2 cups skim milk OR milk substitute
 
-    -   2 oz. semisweet chocolate, chopped
+    - 2 oz. semisweet chocolate, chopped
 
-    -   2 tsp. vanilla extract
+    - 2 tsp. vanilla extract
 
-**PREP**
+## PREP
 
--   Heat oven to 350° F
+- Heat oven to 350° F
 
-**DIRECTIONS**
+## DIRECTIONS
 
--   Combine cookies & almonds in food processor.
+- Combine cookies & almonds in food processor.
 
--   Pulse until mixture is finely ground.
+- Pulse until mixture is finely ground.
 
--   Add melted butter and water.
+- Add melted butter and water.
 
--   Pulse once or twice.
+- Pulse once or twice.
 
--   Stir in coconut by hand.
+- Stir in coconut by hand.
 
--   Pour crumb mixture into 9 in. pie pan.
+- Pour crumb mixture into 9 in. pie pan.
 
--   Using fingertips, push evenly into bottom and up sides of pan.
+- Using fingertips, push evenly into bottom and up sides of pan.
 
--   Bake for 12-15 minutes until crust hardens slightly.
+- Bake for 12-15 minutes until crust hardens slightly.
 
--   In heavy saucepan, stir together sugar, cocoa, & cornstarch.
+- In heavy saucepan, stir together sugar, cocoa, & cornstarch.
 
--   Turn heat to medium-high.
+- Turn heat to medium-high.
 
--   Gradually add milk, stirring constantly, until pudding thickens and
+- Gradually add milk, stirring constantly, until pudding thickens and
     boils.
 
--   Reduce heat to medium-low and add chocolate.
+- Reduce heat to medium-low and add chocolate.
 
--   Heat for 5 more minutes until chocolate is incorporated.
+- Heat for 5 more minutes until chocolate is incorporated.
 
--   Remove from heat and let cool for 5 minutes.
+- Remove from heat and let cool for 5 minutes.
 
--   Stir in vanilla and pour into prepared pie shell.
+- Stir in vanilla and pour into prepared pie shell.
 
--   Refrigerate until completely set, 4 hours or overnight.
+- Refrigerate until completely set, 4 hours or overnight.

@@ -1,65 +1,65 @@
--   5 lbs. apples, peeled, cored, and sliced ½ inch thick (Golden
+- 5 lbs. apples, peeled, cored, and sliced ½ inch thick (Golden
     Delicious or Braeburn) (2.25 kg.)
 
--   ¾ cup sugar (150 g.)
+- ¾ cup sugar (150 g.)
 
--   2 T. cornstarch (15 g.)
+- 2 T. cornstarch (15 g.)
 
--   ½ t. ground cinnamon
+- ½ t. ground cinnamon
 
--   2 t. fresh juice and 1 t. grated zest from 1 lemon
+- 2 t. fresh juice and 1 t. grated zest from 1 lemon
 
--   1 t. kosher salt
+- 1 t. kosher salt
 
--   1 recipe Easy Pie Dough (or 2 store-bought disks)
+- 1 recipe Easy Pie Dough (or 2 store-bought disks)
 
--   1 egg white
+- 1 egg white
 
--   1 T. sugar
+- 1 T. sugar
 
-**PREP**
+## PREP
 
--   Preheat oven to 425 degrees F
+- Preheat oven to 425 degrees F
 
--   Preheat Dutch oven on stovetop on low heat
+- Preheat Dutch oven on stovetop on low heat
 
-**DIRECTIONS**
+## DIRECTIONS
 
--   Toss apple slices with sugar, cornstarch, cinnamon, juice, zest, and
+- Toss apple slices with sugar, cornstarch, cinnamon, juice, zest, and
     salt
 
--   Let rest for 10 minutes
+- Let rest for 10 minutes
 
--   Transfer to the Dutch oven and cook, stirring frequently
+- Transfer to the Dutch oven and cook, stirring frequently
 
--   Keep the temperature below 160 degrees F for at least 20 minutes
+- Keep the temperature below 160 degrees F for at least 20 minutes
 
--   Increase heat to med-high and stir until juices are thickened
+- Increase heat to med-high and stir until juices are thickened
 
--   Transfer to a large baking sheet and spread out to cool completely
+- Transfer to a large baking sheet and spread out to cool completely
     (1 hour)
 
--   Roll dough disks out to 12 inches
+- Roll dough disks out to 12 inches
 
--   Lay the first disk in the bottom of a 9-inch pie plate
+- Lay the first disk in the bottom of a 9-inch pie plate
 
--   Add filling to the pie
+- Add filling to the pie
 
--   Lay the second disk over the filling
+- Lay the second disk over the filling
 
--   Trim the dough edges so that they overhang by ½ inch
+- Trim the dough edges so that they overhang by ½ inch
 
--   Fold the edges under each other but over the plate lip, and crimp
+- Fold the edges under each other but over the plate lip, and crimp
 
--   Cut 5 slits in the pie top for ventilation
+- Cut 5 slits in the pie top for ventilation
 
--   Brush the egg white all over the top with a pastry brush
+- Brush the egg white all over the top with a pastry brush
 
--   Sprinkle evenly with 1 T. of sugar
+- Sprinkle evenly with 1 T. of sugar
 
--   Bake until light golden brown (20 minutes)
+- Bake until light golden brown (20 minutes)
 
--   Reduce heat to 350 degrees F and continue until deep golden brown
+- Reduce heat to 350 degrees F and continue until deep golden brown
     (25 minutes)
 
--   Remove and let cool for 4 hours before serving
+- Remove and let cool for 4 hours before serving

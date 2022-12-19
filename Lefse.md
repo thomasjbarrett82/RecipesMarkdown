@@ -1,33 +1,33 @@
--   16 cups potatoes
+- 16 cups potatoes
 
--   ½ cup shortening
+- ½ cup shortening
 
--   ¼ cup butter
+- ¼ cup butter
 
--   ¾ cup evaporated milk
+- ¾ cup evaporated milk
 
--   ¼ cup sugar
+- ¼ cup sugar
 
--   Salt to taste
+- Salt to taste
 
--   3 cups flour
+- 3 cups flour
 
-**PREP**
+## PREP
 
--   Boil and rice the potatoes
+- Boil and rice the potatoes
 
--   Mix potatoes, shortening, butter, milk, sugar, salt in large bowl
+- Mix potatoes, shortening, butter, milk, sugar, salt in large bowl
 
--   Beat well
+- Beat well
 
--   Set aside for several hours in the fridge
+- Set aside for several hours in the fridge
 
-**DIRECTIONS**
+## DIRECTIONS
 
--   Mix in flour thoroughly
+- Mix in flour thoroughly
 
--   Roll out in small portions, like a tortilla
+- Roll out in small portions, like a tortilla
 
--   Cook on flat griddle or pan
+- Cook on flat griddle or pan
 
--   Wrap in cloth towel and keep warm until serving
+- Wrap in cloth towel and keep warm until serving

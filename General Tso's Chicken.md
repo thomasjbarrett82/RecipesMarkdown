@@ -1,82 +1,88 @@
--   **MARINADE**: 1 egg white
+### MARINADE
 
--   2 T. soy sauce
+- 1 egg white
 
--   2 T. white wine
+- 2 T. soy sauce
 
--   2 T. vodka
+- 2 T. white wine
 
--   ¼ t. baking soda
+- 2 T. vodka
 
--   3 T. cornstarch
+- ¼ t. baking soda
 
--   1 lb. boneless, skinless chicken thighs, cut into ½ - ¾ inch chunks
+- 3 T. cornstarch
 
--   **DRY COAT**: ½ cup flour
+- 1 lb. boneless, skinless chicken thighs, cut into ½ - ¾ inch chunks
 
--   ½ cup cornstarch
+### DRY COAT
 
--   ½ t. baking powder
+- ½ cup flour
 
--   ½ t. kosher salt
+- ½ cup cornstarch
 
--   **SAUCE**: 3 T. soy sauce
+- ½ t. baking powder
 
--   2 T. white wine
+- ½ t. kosher salt
 
--   2 T. rice vinegar
+### SAUCE
 
--   3 T. chicken stock
+- 3 T. soy sauce
 
--   4 T. sugar
+- 2 T. white wine
 
--   1 t. sesame oil
+- 2 T. rice vinegar
 
--   1 T. cornstarch
+- 3 T. chicken stock
 
--   2 t. + 1.5 quarts oil
+- 4 T. sugar
 
--   2 t. minced garlic
+- 1 t. sesame oil
 
--   2 t. minced ginger
+- 1 T. cornstarch
 
--   2 t. minced scallions
+- 2 t. + 1.5 quarts oil
 
--   8 small dried red Chinese or Arbol chilies (or ¼ t. dried red pepper
+- 2 t. minced garlic
+
+- 2 t. minced ginger
+
+- 2 t. minced scallions
+
+- 8 small dried red Chinese or Arbol chilies (or ¼ t. dried red pepper
     flakes)
 
-**DIRECTIONS**
+## DIRECTIONS
 
--   Whisk marinade ingredients together, set aside half
+- Whisk marinade ingredients together, set aside half
 
--   Add chicken and set aside
+- Add chicken and set aside
 
--   Combine dry coat ingredients, then add half of marinade and whisk
+- Combine dry coat ingredients, then add half of marinade and whisk
     until clumpy
 
--   Whisk soy sauce, wine, vinegar, stock, sugar, sesame oil, &
+- Whisk soy sauce, wine, vinegar, stock, sugar, sesame oil, &
     cornstarch in a small bowl
 
--   Combine 2 t. oil, garlic, ginger, scallions, & chilies in large
+- Combine 2 t. oil, garlic, ginger, scallions, & chilies in large
     skillet
 
--   Cook over medium heat 3-4 minutes until soft and aromatic
+- Cook over medium heat 3-4 minutes until soft and aromatic
 
--   Add sauce mixture and stir until boiling and thick
+- Add sauce mixture and stir until boiling and thick
 
--   Transfer to a bowl to stop cooking, but don’t wipe out the skillet
+- Transfer to a bowl to stop cooking, but don’t wipe out the skillet
 
--   Heat 1.5 quarts oil to 350 degrees F in a large wok or Dutch oven
+- Heat 1.5 quarts oil to 350 degrees F in a large wok or Dutch oven
 
--   Transfer chicken from marinade to dry coat, pressing to fully coat
+- Transfer chicken from marinade to dry coat, pressing to fully coat
 
--   Add chicken to oil one piece at a time
+- Add chicken to oil one piece at a time
 
--   Cook until crispy, about 4 minutes each, and move to towel-lined
+- Cook until crispy, about 4 minutes each, and move to towel-lined
     plate to drain
 
--   Return chicken to empty skillet and add the sauce
+- Return chicken to empty skillet and add the sauce
 
--   Toss until fully coated
+- Toss until fully coated
 
--   Serve over white rice
+- Serve over white rice

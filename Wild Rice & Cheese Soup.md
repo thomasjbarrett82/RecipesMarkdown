@@ -1,27 +1,27 @@
--   2 cups wild rice, cooked
+- 2 cups wild rice, cooked
 
--   1# bacon
+- 1# bacon
 
--   1 onion, chopped
+- 1 onion, chopped
 
--   2 pints heavy cream
+- 2 pints heavy cream
 
--   2 cans cream of potato soup
+- 2 cans cream of potato soup
 
--   2 cups shredded Cheddar
+- 2 cups shredded Cheddar
 
-**PREP**
+## PREP
 
--   Heat large, heavy pan over medium
+- Heat large, heavy pan over medium
 
-**DIRECTIONS**
+## DIRECTIONS
 
--   Cook bacon in pan, removing and crumbling after cool
+- Cook bacon in pan, removing and crumbling after cool
 
--   Reserve 2 tbsp of fat and dispose of the rest
+- Reserve 2 tbsp of fat and dispose of the rest
 
--   Cook onion in bacon fat for 5 minutes
+- Cook onion in bacon fat for 5 minutes
 
--   Return bacon and stir in remaining ingredients
+- Return bacon and stir in remaining ingredients
 
--   Cook for 5-10 minutes until heated through
+- Cook for 5-10 minutes until heated through

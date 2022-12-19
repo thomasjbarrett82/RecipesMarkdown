@@ -1,52 +1,52 @@
--   Filling:
+- Filling:
 
-    -   6 oz. chocolate chips
+    - 6 oz. chocolate chips
 
-    -   8 oz. cream cheese
+    - 8 oz. cream cheese
 
-    -   1 egg
+    - 1 egg
 
-    -   1/3 cup sugar
+    - 1/3 cup sugar
 
-    -   1/8 tsp. salt
+    - 1/8 tsp. salt
 
--   1 ½ cup flour
+- 1 ½ cup flour
 
--   ¼ cup cocoa powder
+- ¼ cup cocoa powder
 
--   ½ tsp. salt
+- ½ tsp. salt
 
--   1 cup sugar
+- 1 cup sugar
 
--   1 tsp. baking soda
+- 1 tsp. baking soda
 
--   1 cup water
+- 1 cup water
 
--   ½ cup oil
+- ½ cup oil
 
--   1 tsp. vanilla
+- 1 tsp. vanilla
 
-**PREP**
+## PREP
 
--   Heat oven to 350 F
+- Heat oven to 350 F
 
--   Prepare double boiler on stove
+- Prepare double boiler on stove
 
--   Place liners in cupcake pan
+- Place liners in cupcake pan
 
-**DIRECTIONS**
+## DIRECTIONS
 
--   Melt chips in double boiler
+- Melt chips in double boiler
 
--   Remove from heat and stir in remaining filling ingredients
+- Remove from heat and stir in remaining filling ingredients
 
--   In large bowl, combine flour, cocoa, salt, sugar, & baking soda
+- In large bowl, combine flour, cocoa, salt, sugar, & baking soda
 
--   Stir in water, oil, & vanilla until smooth
+- Stir in water, oil, & vanilla until smooth
 
--   Fill each liner 1/3 full with dough, 1 tbsp. filling, then top with
+- Fill each liner 1/3 full with dough, 1 tbsp. filling, then top with
     dough
 
--   Bake about 20 minutes
+- Bake about 20 minutes
 
--   Remove and let cool before serving
+- Remove and let cool before serving

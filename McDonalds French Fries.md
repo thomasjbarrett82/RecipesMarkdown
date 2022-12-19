@@ -1,39 +1,39 @@
--   4-5 russet potatoes, peeled & fry cut
+- 4-5 russet potatoes, peeled & fry cut
 
--   Brine:
+- Brine:
 
-    -   8 cups cold water
+    - 8 cups cold water
 
-    -   2 tbsp. salt
+    - 2 tbsp. salt
 
-    -   1 tbsp. sugar
+    - 1 tbsp. sugar
 
-    -   2 tbsp. white vinegar
+    - 2 tbsp. white vinegar
 
--   Beef tallow or lard
+- Beef tallow or lard
 
--   Table salt
+- Table salt
 
-**PREP**
+## PREP
 
--   Mix the brine in 3 qt. pot with lid
+- Mix the brine in 3 qt. pot with lid
 
--   Place the fries into the pot and refrigerate for at least 2 hours
+- Place the fries into the pot and refrigerate for at least 2 hours
 
-**DIRECTIONS**
+## DIRECTIONS
 
--   Bring pot to a full boil for 2 minutes
+- Bring pot to a full boil for 2 minutes
 
--   Drain & rinse potatoes under cold water
+- Drain & rinse potatoes under cold water
 
--   Blot dry
+- Blot dry
 
--   Place flat into freezer bags without crowding
+- Place flat into freezer bags without crowding
 
--   Freeze flat for at least 2 hours
+- Freeze flat for at least 2 hours
 
--   Heat tallow/lard in cast iron pan or fryer to 375° F
+- Heat tallow/lard in cast iron pan or fryer to 375° F
 
--   Fry until light golden brown, approximately 2-3 minutes
+- Fry until light golden brown, approximately 2-3 minutes
 
--   Remove and let drain, season lightly with salt
+- Remove and let drain, season lightly with salt

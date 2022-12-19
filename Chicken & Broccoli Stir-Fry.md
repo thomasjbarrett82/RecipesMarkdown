@@ -1,51 +1,51 @@
--   1 lb. boneless, skinless chicken breast, sliced thin
+- 1 lb. boneless, skinless chicken breast, sliced thin
 
--   1 ½ + ½ tbsp. cornstarch
+- 1 ½ + ½ tbsp. cornstarch
 
--   1 tbsp. dry sherry
+- 1 tbsp. dry sherry
 
--   ½ tsp. kosher salt
+- ½ tsp. kosher salt
 
--   ¼ tsp. black pepper
+- ¼ tsp. black pepper
 
--   4 tbsp. low-sodium soy sauce
+- 4 tbsp. low-sodium soy sauce
 
--   2 tbsp. chicken broth
+- 2 tbsp. chicken broth
 
--   2 tsp. sugar or other sweetener
+- 2 tsp. sugar or other sweetener
 
--   ¼ tsp. ginger powder
+- ¼ tsp. ginger powder
 
--   Dash of crushed red pepper
+- Dash of crushed red pepper
 
--   12 oz. steamed broccoli florets
+- 12 oz. steamed broccoli florets
 
--   2 tbsp. oil
+- 2 tbsp. oil
 
--   2 garlic cloves, minced
+- 2 garlic cloves, minced
 
--   3 cups cooked rice
+- 3 cups cooked rice
 
-**PREP**
+## PREP
 
--   In a wide bowl, combine 1 ½ tbsp. cornstarch, sherry, salt & pepper,
+- In a wide bowl, combine 1 ½ tbsp. cornstarch, sherry, salt & pepper,
     for dredging the chicken.
 
--   In a small bowl, whisk ½ tbsp. cornstarch, soy sauce, broth, sugar,
+- In a small bowl, whisk ½ tbsp. cornstarch, soy sauce, broth, sugar,
     ginger, red pepper, and set aside.
 
--   Heat wok or large heavy skillet over medium-high heat.
+- Heat wok or large heavy skillet over medium-high heat.
 
-**DIRECTIONS**
+## DIRECTIONS
 
--   Dredge the chicken strips in the mixture and set aside.
+- Dredge the chicken strips in the mixture and set aside.
 
--   Heat oil in the pan.
+- Heat oil in the pan.
 
--   Add the chicken and stir-fry until just done.
+- Add the chicken and stir-fry until just done.
 
--   Add garlic, broccoli, and sauce to pan.
+- Add garlic, broccoli, and sauce to pan.
 
--   Stir-fry until broccoli is heated through.
+- Stir-fry until broccoli is heated through.
 
--   Serve over rice.
+- Serve over rice.

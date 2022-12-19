@@ -1,35 +1,35 @@
--   ½ cup shortening
+- ½ cup shortening
 
--   ½ cup butter, softened
+- ½ cup butter, softened
 
--   1 egg
+- 1 egg
 
--   1 ½ tsp. almond extract
+- 1 ½ tsp. almond extract
 
--   1 tsp. vanilla extract
+- 1 tsp. vanilla extract
 
--   2 ½ cups flour
+- 2 ½ cups flour
 
--   ½ tsp. salt
+- ½ tsp. salt
 
--   Red food coloring
+- Red food coloring
 
-**PREP**
+## PREP
 
--   Heat oven to 350 F
+- Heat oven to 350 F
 
-**DIRECTIONS**
+## DIRECTIONS
 
--   In large bowl, cream together shortening, butter, egg, & extracts
+- In large bowl, cream together shortening, butter, egg, & extracts
 
--   Mix in the flour & salt
+- Mix in the flour & salt
 
--   Split dough into half
+- Split dough into half
 
--   Stir in food coloring into one half
+- Stir in food coloring into one half
 
--   Spoon out onto cookie sheet
+- Spoon out onto cookie sheet
 
--   Bake for 8-10 minutes
+- Bake for 8-10 minutes
 
--   Remove and let cool
+- Remove and let cool

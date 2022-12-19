@@ -1,25 +1,25 @@
--   1 ¾ cup flour
+- 1 ¾ cup flour
 
--   2 tbsp. sugar
+- 2 tbsp. sugar
 
--   1 tbsp. baking powder
+- 1 tbsp. baking powder
 
--   2 eggs
+- 2 eggs
 
--   1 ½ cup milk
+- 1 ½ cup milk
 
--   ½ cup oil
+- ½ cup oil
 
--   1 tsp. vanilla
+- 1 tsp. vanilla
 
-**PREP**
+## PREP
 
--   Heat waffle iron
+- Heat waffle iron
 
-**DIRECTIONS**
+## DIRECTIONS
 
--   Mix all ingredients together
+- Mix all ingredients together
 
--   Drop into waffle iron by ¼ cup scoops
+- Drop into waffle iron by ¼ cup scoops
 
--   Cook until golden brown
+- Cook until golden brown

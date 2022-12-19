@@ -1,32 +1,32 @@
--   1 can sardines in oil
+- 1 can sardines in oil
 
--   Lemon pepper
+- Lemon pepper
 
--   2-3 eggs
+- 2-3 eggs
 
--   Hot sauce
+- Hot sauce
 
--   Toast
+- Toast
 
-**PREP**
+## PREP
 
--   Heat the oven to 400
+- Heat the oven to 400
 
-**DIRECTIONS**
+## DIRECTIONS
 
--   Place a small cast iron or other oven-safe pan in the oven for 4
+- Place a small cast iron or other oven-safe pan in the oven for 4
     minutes
 
--   Roughly mash the sardines in a bowl with the lemon pepper
+- Roughly mash the sardines in a bowl with the lemon pepper
 
--   Spread the sardines in the pan
+- Spread the sardines in the pan
 
--   Place back in the oven for 4 minutes
+- Place back in the oven for 4 minutes
 
--   Crack the eggs over the sardines
+- Crack the eggs over the sardines
 
--   Back in the oven for another 4 minutes
+- Back in the oven for another 4 minutes
 
--   Remove and sprinkle some hot sauce over everything
+- Remove and sprinkle some hot sauce over everything
 
--   Eat out of the pan with toast
+- Eat out of the pan with toast

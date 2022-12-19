@@ -1,41 +1,41 @@
--   1 T. oil
+- 1 T. oil
 
--   6 oz. chorizo, diced
+- 6 oz. chorizo, diced
 
--   1 lb. dry black beans
+- 1 lb. dry black beans
 
--   1 onion, diced
+- 1 onion, diced
 
--   6 cloves garlic, minced
+- 6 cloves garlic, minced
 
--   2 bay leaves
+- 2 bay leaves
 
--   2 qt. chicken stock
+- 2 qt. chicken stock
 
--   Salt & pepper
+- Salt & pepper
 
--   Fresh cilantro, chopped
+- Fresh cilantro, chopped
 
-**PREP**
+## PREP
 
--   Heat the pressure cooker to sauté
+- Heat the pressure cooker to sauté
 
-**DIRECTIONS**
+## DIRECTIONS
 
--   Add oil to cooker and heat to shimmering
+- Add oil to cooker and heat to shimmering
 
--   Add chorizo and onion, and cook until browned
+- Add chorizo and onion, and cook until browned
 
--   Add the remaining ingredients
+- Add the remaining ingredients
 
--   Close lid and set to high pressure
+- Close lid and set to high pressure
 
--   Cook for 45 minutes
+- Cook for 45 minutes
 
--   Turn off and allow pressure to release naturally
+- Turn off and allow pressure to release naturally
 
--   Remove lid and discard the bay leaves
+- Remove lid and discard the bay leaves
 
--   Season with salt & pepper to taste
+- Season with salt & pepper to taste
 
--   Serve with cilantro sprinkled over the top
+- Serve with cilantro sprinkled over the top

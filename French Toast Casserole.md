@@ -1,45 +1,45 @@
--   1 loaf unsliced bread
+- 1 loaf unsliced bread
 
--   Custard:
+- Custard:
 
-    -   2 cups half & half
+    - 2 cups half & half
 
-    -   5 eggs
+    - 5 eggs
 
-    -   3 tbsp brown sugar
+    - 3 tbsp brown sugar
 
-    -   1 tsp cinnamon
+    - 1 tsp cinnamon
 
-    -   1 tsp nutmeg
+    - 1 tsp nutmeg
 
-    -   1 tsp vanilla extract
+    - 1 tsp vanilla extract
 
-    -   2 tbsp brown alcohol (any)
+    - 2 tbsp brown alcohol (any)
 
-    -   3 tbsp melted butter
+    - 3 tbsp melted butter
 
--   Optional: 2 handfuls of chopped pecans
+- Optional: 2 handfuls of chopped pecans
 
--   3 tbsp brown sugar
+- 3 tbsp brown sugar
 
-**DIRECTIONS**
+## DIRECTIONS
 
--   *Note: can be prepped the night before*
+- *Note: can be prepped the night before*
 
--   Slice bread into 1-inch cubes
+- Slice bread into 1-inch cubes
 
--   Spread on pan and bake at 170F 10 minutes to dry out
+- Spread on pan and bake at 170F 10 minutes to dry out
 
--   Grease 9x13 casserole dish
+- Grease 9x13 casserole dish
 
--   Add bread to dish
+- Add bread to dish
 
--   Whisk custard in bowl
+- Whisk custard in bowl
 
--   Pour over all bread, tossing gently to combine
+- Pour over all bread, tossing gently to combine
 
--   Sprinkle with brown sugar (and pecans, if using)
+- Sprinkle with brown sugar (and pecans, if using)
 
--   Bake at 350F for 35-45 minutes until firm
+- Bake at 350F for 35-45 minutes until firm
 
--   Let rest at least 10 minutes before serving with fruit and syrup
+- Let rest at least 10 minutes before serving with fruit and syrup

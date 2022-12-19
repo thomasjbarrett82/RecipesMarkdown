@@ -1,31 +1,31 @@
--   1# ground beef
+- 1# ground beef
 
--   1 package taco seasoning
+- 1 package taco seasoning
 
--   1 can sweet corn, drained
+- 1 can sweet corn, drained
 
--   1 can nacho cheese soup
+- 1 can nacho cheese soup
 
--   Tater tots
+- Tater tots
 
--   OPTIONAL: salsa & sour cream
+- OPTIONAL: salsa & sour cream
 
-**PREP**
+## PREP
 
--   Heat oven to 375° F
+- Heat oven to 375° F
 
--   Heat pan over med-high
+- Heat pan over med-high
 
-**DIRECTIONS**
+## DIRECTIONS
 
--   Brown beef in pan and drain the grease
+- Brown beef in pan and drain the grease
 
--   Stir in seasoning and cook for 3 minutes
+- Stir in seasoning and cook for 3 minutes
 
--   Spoon beef into casserole dish
+- Spoon beef into casserole dish
 
--   Layer corn and then soup over the top
+- Layer corn and then soup over the top
 
--   Cover with tater-tots
+- Cover with tater-tots
 
--   Bake for 45 minutes until lightly browned on top
+- Bake for 45 minutes until lightly browned on top

@@ -1,59 +1,59 @@
--   2 tbsp. EVOO
+- 2 tbsp. EVOO
 
--   3 lbs. chuck roast, cubed
+- 3 lbs. chuck roast, cubed
 
--   Kosher salt & black pepper
+- Kosher salt & black pepper
 
--   1 onion, diced
+- 1 onion, diced
 
--   4 cloves garlic, minced
+- 4 cloves garlic, minced
 
--   3 celery stalks, minced
+- 3 celery stalks, minced
 
--   2 tbsp. balsamic vinegar
+- 2 tbsp. balsamic vinegar
 
--   1 tbsp. flour
+- 1 tbsp. flour
 
--   1 ½ cups chicken broth
+- 1 ½ cups chicken broth
 
--   1 ½ cups good red wine
+- 1 ½ cups good red wine
 
--   4 oz. tomato paste
+- 4 oz. tomato paste
 
--   1 tsp. thyme
+- 1 tsp. thyme
 
--   1 bay leaf
+- 1 bay leaf
 
--   3 large Yukon Gold potatoes, quartered
+- 3 large Yukon Gold potatoes, quartered
 
--   1 lb. carrots, peeled and cut
+- 1 lb. carrots, peeled and cut
 
-**PREP**
+## PREP
 
--   Heat Dutch oven on high, or instant pot on sauté
+- Heat Dutch oven on high, or instant pot on sauté
 
--   Heat oven to 325° F
+- Heat oven to 325° F
 
-**DIRECTIONS**
+## DIRECTIONS
 
--   Heat EVOO in the pot and season the beef with salt and pepper
+- Heat EVOO in the pot and season the beef with salt and pepper
 
--   Brown the beef in batches and set aside to rest
+- Brown the beef in batches and set aside to rest
 
--   Add onion, garlic, celery, and vinegar and cook for 5 minutes
+- Add onion, garlic, celery, and vinegar and cook for 5 minutes
 
--   Return the beef to the pot
+- Return the beef to the pot
 
--   Sprinkle flour over everything and stir to combine
+- Sprinkle flour over everything and stir to combine
 
--   Mix in broth, wine, tomato paste, thyme, and bay leaf
+- Mix in broth, wine, tomato paste, thyme, and bay leaf
 
--   Bring to a boil and then transfer to oven with the lid on
+- Bring to a boil and then transfer to oven with the lid on
 
--   Braise for 2 hours
+- Braise for 2 hours
 
--   Add the potatoes and carrots and braise for another hour
+- Add the potatoes and carrots and braise for another hour
 
--   Remove and let cool for at least 20 minutes
+- Remove and let cool for at least 20 minutes
 
--   Remove the bay leaf before serving
+- Remove the bay leaf before serving

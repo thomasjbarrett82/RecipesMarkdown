@@ -1,39 +1,39 @@
--   1# ground beef
+- 1# ground beef
 
--   ½ yellow onion, chopped
+- ½ yellow onion, chopped
 
--   ½# bacon, chopped
+- ½# bacon, chopped
 
--   1 large can baked beans
+- 1 large can baked beans
 
--   1 can kidney beans, drained and rinsed
+- 1 can kidney beans, drained and rinsed
 
--   1 can butter beans, drained and rinsed
+- 1 can butter beans, drained and rinsed
 
--   ½ cup ketchup
+- ½ cup ketchup
 
--   ½ cup firmly packed brown sugar
+- ½ cup firmly packed brown sugar
 
--   3 tbsp vinegar
+- 3 tbsp vinegar
 
--   1 tbsp Liquid Smoke
+- 1 tbsp Liquid Smoke
 
--   1 tbsp mustard
+- 1 tbsp mustard
 
--   ½ tsp black pepper
+- ½ tsp black pepper
 
-**PREP**
+## PREP
 
--   Heat pan or skillet over med-high
+- Heat pan or skillet over med-high
 
-**DIRECTIONS**
+## DIRECTIONS
 
--   Place ground beef and onions in pan
+- Place ground beef and onions in pan
 
--   Cook until browned, then drain and remove
+- Cook until browned, then drain and remove
 
--   Mix with remaining ingredients in crockpot
+- Mix with remaining ingredients in crockpot
 
--   Cook on LOW for 4-6 hours
+- Cook on LOW for 4-6 hours
 
-    -   Or bake at 350° F for 45 minutes
+    - Or bake at 350° F for 45 minutes

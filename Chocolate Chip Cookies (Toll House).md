@@ -1,55 +1,55 @@
--   2 ¼ cup flour
+- 2 ¼ cup flour
 
--   1 tsp baking soda
+- 1 tsp baking soda
 
--   1 tsp salt
+- 1 tsp salt
 
--   ¾ cup white sugar (180 g)
+- ¾ cup white sugar (180 g)
 
--   ¾ cup brown sugar (180 g)
+- ¾ cup brown sugar (180 g)
 
--   1 cup butter, softened (2 sticks)
+- 1 cup butter, softened (2 sticks)
 
--   1 tsp vanilla
+- 1 tsp vanilla
 
--   2 eggs
+- 2 eggs
 
--   12 oz. chocolate chips
+- 12 oz. chocolate chips
 
--   1 cup chopped nuts (optional)
+- 1 cup chopped nuts (optional)
 
-**PREP**
+## PREP
 
--   Heat oven to 375° F
+- Heat oven to 375° F
 
-**DIRECTIONS**
+## DIRECTIONS
 
--   Mix flour, baking soda, and salt in medium bowl
+- Mix flour, baking soda, and salt in medium bowl
 
--   Mix sugars together in large bowl
+- Mix sugars together in large bowl
 
--   Add butter and cream until light & fluffy
+- Add butter and cream until light & fluffy
 
--   Add in vanilla
+- Add in vanilla
 
--   Add eggs
+- Add eggs
 
--   Slowly add flour
+- Slowly add flour
 
--   Scrape sides and mix thoroughly
+- Scrape sides and mix thoroughly
 
--   Fold in chocolate chips
+- Fold in chocolate chips
 
--   Drop by spoonful’s onto cookie sheet with parchment paper
+- Drop by spoonful’s onto cookie sheet with parchment paper
 
--   Bake for 10 minutes until golden brown
+- Bake for 10 minutes until golden brown
 
--   Remove and let cool
+- Remove and let cool
 
--   Makes approximately 40 cookies
+- Makes approximately 40 cookies
 
-**PAN COOKIE VARIATION**
+## PAN COOKIE VARIATION
 
--   Spread dough into greased pan
+- Spread dough into greased pan
 
--   Bake for 20-25 minutes until golden brown
+- Bake for 20-25 minutes until golden brown

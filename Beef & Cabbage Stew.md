@@ -1,43 +1,43 @@
--   2 lbs. beef stew meat, cubed
+- 2 lbs. beef stew meat, cubed
 
--   1 T. vegetable oil
+- 1 T. vegetable oil
 
--   2 cups chicken broth
+- 2 cups chicken broth
 
--   1 yellow onion, diced
+- 1 yellow onion, diced
 
--   3 medium carrots, diced
+- 3 medium carrots, diced
 
--   1/3 head cabbage, rough chopped
+- 1/3 head cabbage, rough chopped
 
--   3 celery stalks, diced
+- 3 celery stalks, diced
 
--   2 large potatoes, diced
+- 2 large potatoes, diced
 
--   4 cloves garlic, minced
+- 4 cloves garlic, minced
 
--   8 oz. can tomato sauce
+- 8 oz. can tomato sauce
 
--   1 T. kosher salt
+- 1 T. kosher salt
 
--   1 t. black pepper
+- 1 t. black pepper
 
--   2 bay leaves
+- 2 bay leaves
 
--   1 package onion soup mix
+- 1 package onion soup mix
 
--   1 T. Worcestershire sauce
+- 1 T. Worcestershire sauce
 
-**PREP**
+## PREP
 
--   Heat pressure cooker to sauté
+- Heat pressure cooker to sauté
 
-**DIRECTIONS**
+## DIRECTIONS
 
--   Heat oil in pressure cooker and brown beef on all sides
+- Heat oil in pressure cooker and brown beef on all sides
 
--   Add remaining ingredients
+- Add remaining ingredients
 
--   Secure the lid and cook at Stew setting (high) for 60 minutes
+- Secure the lid and cook at Stew setting (high) for 60 minutes
 
--   Set to Slow Cook for at least 30 minutes before releasing pressure
+- Set to Slow Cook for at least 30 minutes before releasing pressure

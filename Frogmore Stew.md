@@ -1,29 +1,29 @@
--   4 quarts water
+- 4 quarts water
 
--   1 bottle beer
+- 1 bottle beer
 
--   ¾ cup Old Bay or other seafood seasoning
+- ¾ cup Old Bay or other seafood seasoning
 
--   2# red potatoes, diced
+- 2# red potatoes, diced
 
--   2# spicy sausage, chopped
+- 2# spicy sausage, chopped
 
--   12 ears corn, husked and quartered
+- 12 ears corn, husked and quartered
 
--   2# large shrimp, peeled & deveined, tails removed
+- 2# large shrimp, peeled & deveined, tails removed
 
--   2# crab legs or other desired seafood
+- 2# crab legs or other desired seafood
 
-**DIRECTIONS**
+## DIRECTIONS
 
--   Heat water, beer, and Old Bay in large pot until boiling
+- Heat water, beer, and Old Bay in large pot until boiling
 
--   Add potatoes and cook 15 minutes
+- Add potatoes and cook 15 minutes
 
--   Add sausage and cook for 5 minutes
+- Add sausage and cook for 5 minutes
 
--   Add corn and cook for 10 minutes
+- Add corn and cook for 10 minutes
 
--   Add seafood and cook for 5 minutes, until done
+- Add seafood and cook for 5 minutes, until done
 
--   Drain and serve
+- Drain and serve

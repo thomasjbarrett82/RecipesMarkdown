@@ -1,46 +1,46 @@
--   2 ¼ lbs Roma tomatoes, halved & deseeded
+- 2 ¼ lbs Roma tomatoes, halved & deseeded
 
--   3 bell peppers, quartered & deseeded
+- 3 bell peppers, quartered & deseeded
 
--   1 onion, wedged
+- 1 onion, wedged
 
--   4 cloves garlic
+- 4 cloves garlic
 
--   2 tbsp olive oil
+- 2 tbsp olive oil
 
--   Kosher salt & black pepper
+- Kosher salt & black pepper
 
--   1 tsp thyme
+- 1 tsp thyme
 
--   1-2 cups water
+- 1-2 cups water
 
--   Optional: heavy cream
+- Optional: heavy cream
 
-**PREP**
+## PREP
 
--   Heat oven to 450°F
+- Heat oven to 450°F
 
-**DIRECTIONS**
+## DIRECTIONS
 
--   Arrange tomatoes (cut-side up), peppers, onions, garlic on baking
+- Arrange tomatoes (cut-side up), peppers, onions, garlic on baking
     sheet
 
--   Drizzle oil over everything
+- Drizzle oil over everything
 
--   Sprinkle generously with salt & pepper
+- Sprinkle generously with salt & pepper
 
--   Roast in oven until browned, ~40 minutes
+- Roast in oven until browned, ~40 minutes
 
--   Remove and let cool
+- Remove and let cool
 
--   Transfer to blender, food processor, or use stick blender
+- Transfer to blender, food processor, or use stick blender
 
--   Add thyme leaves
+- Add thyme leaves
 
--   Puree, adding water as needed to get desired consistency
+- Puree, adding water as needed to get desired consistency
 
--   Chill for 3-24 hours to let flavors mix together
+- Chill for 3-24 hours to let flavors mix together
 
--   Garnish with heavy cream, if desired
+- Garnish with heavy cream, if desired
 
--   Serve hot or cold
+- Serve hot or cold

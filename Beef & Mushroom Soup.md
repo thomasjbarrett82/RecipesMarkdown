@@ -1,58 +1,58 @@
--   1 tbsp olive oil
+- 1 tbsp olive oil
 
--   2# boneless roast
+- 2# boneless roast
 
--   1 tsp kosher salt
+- 1 tsp kosher salt
 
--   1 tsp black pepper
+- 1 tsp black pepper
 
--   1 tbsp gluten-free flour
+- 1 tbsp gluten-free flour
 
--   16 oz sliced wild or crimini mushrooms
+- 16 oz sliced wild or crimini mushrooms
 
--   ½ yellow onion, diced
+- ½ yellow onion, diced
 
--   1 cup carrots, sliced or shredded
+- 1 cup carrots, sliced or shredded
 
--   ½ cup wild rice
+- ½ cup wild rice
 
--   6 cups beef broth
+- 6 cups beef broth
 
--   2 tsp chopped oregano
+- 2 tsp chopped oregano
 
--   ½ tsp fennel seeds
+- ½ tsp fennel seeds
 
-**PREP**
+## PREP
 
--   Heat olive oil in Dutch oven (or braising pan) over med-high heat
+- Heat olive oil in Dutch oven (or braising pan) over med-high heat
 
-**DIRECTIONS**
+## DIRECTIONS
 
--   In shallow dish, mix salt, pepper, and flour
+- In shallow dish, mix salt, pepper, and flour
 
--   Cover roast with flour mixture
+- Cover roast with flour mixture
 
--   Add roast to Dutch oven and brown on all sides
+- Add roast to Dutch oven and brown on all sides
 
--   Remove and set aside
+- Remove and set aside
 
--   Add mushrooms, onion, and carrots
+- Add mushrooms, onion, and carrots
 
--   Cook for 5-6 minutes
+- Cook for 5-6 minutes
 
--   Return roast to Dutch oven and add 1 cup of broth
+- Return roast to Dutch oven and add 1 cup of broth
 
--   Bring to a boil, then turn to low and cover
+- Bring to a boil, then turn to low and cover
 
--   Let braise for 2 hours until fork tender
+- Let braise for 2 hours until fork tender
 
--   Skim fat with ladle\*
+- Skim fat with ladle\*
 
--   Add remaining ingredients and let simmer for another ½ hour
+- Add remaining ingredients and let simmer for another ½ hour
 
--   Season with salt & pepper to taste
+- Season with salt & pepper to taste
 
 <!-- -->
 
--   Place ice cube in metal ladle and run bottom around the surface. Fat
+- Place ice cube in metal ladle and run bottom around the surface. Fat
     will congeal on the bottom of the ladle and can be wiped off.

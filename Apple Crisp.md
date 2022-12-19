@@ -1,49 +1,49 @@
--   6 large apples, peeled and sliced
+- 6 large apples, peeled and sliced
 
--   3 tbsp. white sugar
+- 3 tbsp. white sugar
 
--   1 tbsp. cornstarch
+- 1 tbsp. cornstarch
 
--   ½ tsp. kosher salt
+- ½ tsp. kosher salt
 
--   2 tbsp. bourbon
+- 2 tbsp. bourbon
 
--   ½ cup rolled oats
+- ½ cup rolled oats
 
--   ¾ cup brown sugar
+- ¾ cup brown sugar
 
--   ½ cup flour
+- ½ cup flour
 
--   1 cup pecans, finely chopped
+- 1 cup pecans, finely chopped
 
--   1 stick butter
+- 1 stick butter
 
--   1 tsp. cinnamon
+- 1 tsp. cinnamon
 
--   ½ tsp. nutmeg
+- ½ tsp. nutmeg
 
--   ½ tsp. kosher salt
+- ½ tsp. kosher salt
 
--   Vanilla ice cream and/or caramel sauce
+- Vanilla ice cream and/or caramel sauce
 
-**PREP**
+## PREP
 
--   Heat oven to 375 F
+- Heat oven to 375 F
 
--   Grease 8x8 or 11x7 (2 quarts) casserole dish
+- Grease 8x8 or 11x7 (2 quarts) casserole dish
 
-**DIRECTIONS**
+## DIRECTIONS
 
--   Combine apple slices, sugar, cornstarch, salt, & bourbon in dish
+- Combine apple slices, sugar, cornstarch, salt, & bourbon in dish
 
--   Add remaining ingredients in separate bowl
+- Add remaining ingredients in separate bowl
 
--   Mash with fork or pastry blender until crumb consistency
+- Mash with fork or pastry blender until crumb consistency
 
--   Pour over apple mixture
+- Pour over apple mixture
 
--   Bake for 45 minutes
+- Bake for 45 minutes
 
--   Remove and let cool for at least 15 minutes
+- Remove and let cool for at least 15 minutes
 
--   Serve with ice cream and/or sauce
+- Serve with ice cream and/or sauce

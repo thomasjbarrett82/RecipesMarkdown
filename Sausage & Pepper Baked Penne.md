@@ -1,45 +1,45 @@
--   8 oz cooked penne pasta (al dente)
+- 8 oz cooked penne pasta (al dente)
 
--   2 tsp olive oil
+- 2 tsp olive oil
 
--   1 red pepper, chopped
+- 1 red pepper, chopped
 
--   2 cubanelle peppers, chopped
+- 2 cubanelle peppers, chopped
 
--   1 onion, chopped
+- 1 onion, chopped
 
--   1 lb spicy Italian sausage
+- 1 lb spicy Italian sausage
 
--   1 cup ricotta cheese
+- 1 cup ricotta cheese
 
--   1 ½ cups mozzarella
+- 1 ½ cups mozzarella
 
--   ¼ cup Parmesan
+- ¼ cup Parmesan
 
--   ¼ cup fresh parsley, chopped
+- ¼ cup fresh parsley, chopped
 
--   2 cups marinara sauce
+- 2 cups marinara sauce
 
-**PREP**
+## PREP
 
--   Heat oven to 400°F
+- Heat oven to 400°F
 
--   Heat oil in large skillet over medium heat
+- Heat oil in large skillet over medium heat
 
-**DIRECTIONS**
+## DIRECTIONS
 
--   Cook peppers, onion, and sausage in skillet until browned
+- Cook peppers, onion, and sausage in skillet until browned
 
--   Remove from heat
+- Remove from heat
 
--   Mix ricotta and half of the other cheeses and parsley in large bowl
+- Mix ricotta and half of the other cheeses and parsley in large bowl
 
--   Toss pasta into bowl with sausage mix and 1 cup sauce
+- Toss pasta into bowl with sausage mix and 1 cup sauce
 
--   Pour into baking dish
+- Pour into baking dish
 
--   Spoon remaining sauce over top
+- Spoon remaining sauce over top
 
--   Sprinkle remaining cheese and parsley over top
+- Sprinkle remaining cheese and parsley over top
 
--   Bake uncovered for 20 minutes until bubbly
+- Bake uncovered for 20 minutes until bubbly

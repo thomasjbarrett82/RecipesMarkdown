@@ -1,17 +1,17 @@
--   6 oz. Coffee mate
+- 6 oz. Coffee mate
 
--   ½ cup powdered sugar
+- ½ cup powdered sugar
 
--   25 oz. powdered milk (makes 8 qt.)
+- 25 oz. powdered milk (makes 8 qt.)
 
--   1 lb. powdered chocolate drink mix
+- 1 lb. powdered chocolate drink mix
 
-**PREP**
+## PREP
 
--   Mix all ingredients together
+- Mix all ingredients together
 
--   Store in airtight container
+- Store in airtight container
 
-**DIRECTIONS**
+## DIRECTIONS
 
--   Add ¼ cup mix to 1 cup hot water or milk
+- Add ¼ cup mix to 1 cup hot water or milk

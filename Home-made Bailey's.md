@@ -1,23 +1,23 @@
--   1 cup heavy cream
+- 1 cup heavy cream
 
--   1 14 oz. can sweetened condensed milk
+- 1 14 oz. can sweetened condensed milk
 
--   1 2/3 cup Irish whiskey
+- 1 2/3 cup Irish whiskey
 
--   1 tsp. instant coffee
+- 1 tsp. instant coffee
 
--   2 tbsp. cocoa powder
+- 2 tbsp. cocoa powder
 
--   1 tsp. vanilla extract
+- 1 tsp. vanilla extract
 
--   1 tsp. almond extract (optional)
+- 1 tsp. almond extract (optional)
 
-**DIRECTIONS**
+## DIRECTIONS
 
--   Blend all ingredients on high for 1 minute.
+- Blend all ingredients on high for 1 minute.
 
--   Store in fridge in sealed container.
+- Store in fridge in sealed container.
 
--   Shake before using.
+- Shake before using.
 
--   Will keep for up to 2 months.
+- Will keep for up to 2 months.

@@ -1,37 +1,37 @@
--   ¾ cup butter, softened
+- ¾ cup butter, softened
 
--   1 ½ cup sugar
+- 1 ½ cup sugar
 
--   2 eggs
+- 2 eggs
 
--   1 tsp. vanilla OR 1 tbsp. Bailey’s
+- 1 tsp. vanilla OR 1 tbsp. Bailey’s
 
--   2 mashed overripe bananas
+- 2 mashed overripe bananas
 
--   ½ cup sour cream
+- ½ cup sour cream
 
--   2 cups flour
+- 2 cups flour
 
--   1 tsp. baking soda
+- 1 tsp. baking soda
 
--   1 tsp. kosher salt
+- 1 tsp. kosher salt
 
-**PREP**
+## PREP
 
--   Heat oven to 350 F
+- Heat oven to 350 F
 
--   Lightly grease bottom of 2 bread pans
+- Lightly grease bottom of 2 bread pans
 
-**DIRECTIONS**
+## DIRECTIONS
 
--   In large bowl, cream sugar and butter
+- In large bowl, cream sugar and butter
 
--   Mix in eggs, Bailey’s, bananas, and sour cream
+- Mix in eggs, Bailey’s, bananas, and sour cream
 
--   In a medium bowl, combine the flour, baking soda, and salt
+- In a medium bowl, combine the flour, baking soda, and salt
 
--   Add dry to wet, avoiding overmixing
+- Add dry to wet, avoiding overmixing
 
--   Pour into bread pans
+- Pour into bread pans
 
--   Bake for 50-60 minutes, until done
+- Bake for 50-60 minutes, until done

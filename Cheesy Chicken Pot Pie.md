@@ -1,49 +1,49 @@
--   1 tbsp oil
+- 1 tbsp oil
 
--   ½ cup chopped onion
+- ½ cup chopped onion
 
--   ½ cup chopped celery
+- ½ cup chopped celery
 
--   1 cup carrots, sliced
+- 1 cup carrots, sliced
 
--   1 cup green beans
+- 1 cup green beans
 
--   2 cups chicken, cooked and chopped
+- 2 cups chicken, cooked and chopped
 
--   1 can cream of chicken soup
+- 1 can cream of chicken soup
 
--   1 can chicken gravy
+- 1 can chicken gravy
 
--   ½ tsp sage
+- ½ tsp sage
 
--   1 cup shredded Cheddar
+- 1 cup shredded Cheddar
 
--   1 tube pre-made crescent rolls
+- 1 tube pre-made crescent rolls
 
-**PREP**
+## PREP
 
--   Heat large pan over medium heat
+- Heat large pan over medium heat
 
--   Heat oven to 375° F
+- Heat oven to 375° F
 
-**DIRECTIONS**
+## DIRECTIONS
 
--   Add oil, onion, and celery to pan
+- Add oil, onion, and celery to pan
 
--   Cook for 3-5 minutes
+- Cook for 3-5 minutes
 
--   Stir in carrots, green beans, chicken, soup, gravy, & sage
+- Stir in carrots, green beans, chicken, soup, gravy, & sage
 
--   Cook until bubbly
+- Cook until bubbly
 
--   Stir in ¾ of the cheese
+- Stir in ¾ of the cheese
 
--   Spoon into greased, deep 2-quart casserole dish
+- Spoon into greased, deep 2-quart casserole dish
 
--   Place crescent rolls over dish to cover
+- Place crescent rolls over dish to cover
 
--   Bake for 40 minutes
+- Bake for 40 minutes
 
--   Sprinkle remaining cheese over crust
+- Sprinkle remaining cheese over crust
 
--   Bake 5 minutes until cheese is melted
+- Bake 5 minutes until cheese is melted

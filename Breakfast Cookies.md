@@ -1,41 +1,41 @@
--   2 eggs
+- 2 eggs
 
--   1 cup sugar (240 g), plus extra
+- 1 cup sugar (240 g), plus extra
 
--   1 cup brown sugar (240 g)
+- 1 cup brown sugar (240 g)
 
--   3 ½ cups flour
+- 3 ½ cups flour
 
--   1 tsp. baking powder
+- 1 tsp. baking powder
 
--   1 tsp. baking soda
+- 1 tsp. baking soda
 
--   1 tsp. vanilla extract
+- 1 tsp. vanilla extract
 
--   ½ tsp. salt
+- ½ tsp. salt
 
--   1 cup oatmeal
+- 1 cup oatmeal
 
--   1 cup Rice Krispies
+- 1 cup Rice Krispies
 
--   1 cup shortening
+- 1 cup shortening
 
--   1 cup butter, melted
+- 1 cup butter, melted
 
-**PREP**
+## PREP
 
--   Heat oven to 350 F
+- Heat oven to 350 F
 
--   Set out two small plates with water and sugar
+- Set out two small plates with water and sugar
 
-**DIRECTIONS**
+## DIRECTIONS
 
--   Mix all ingredients in a large bowl
+- Mix all ingredients in a large bowl
 
--   Dish out dough into balls on cookie sheet with parchment paper
+- Dish out dough into balls on cookie sheet with parchment paper
 
--   Dip a glass into water and then sugar and press down on each cookie
+- Dip a glass into water and then sugar and press down on each cookie
 
--   Bake for 5-7 minutes until golden
+- Bake for 5-7 minutes until golden
 
--   Remove and cool before serving
+- Remove and cool before serving

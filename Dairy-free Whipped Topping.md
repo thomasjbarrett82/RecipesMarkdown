@@ -1,21 +1,21 @@
--   1 15 oz. can coconut milk
+- 1 15 oz. can coconut milk
 
--   ¼ cup powdered sugar
+- ¼ cup powdered sugar
 
--   1 tsp. vanilla extract
+- 1 tsp. vanilla extract
 
-**PREP**
+## PREP
 
--   Place coconut milk in freezer overnight.
+- Place coconut milk in freezer overnight.
 
-**DIRECTIONS**
+## DIRECTIONS
 
--   Open coconut milk and remove solids, discard the liquid.
+- Open coconut milk and remove solids, discard the liquid.
 
--   Add to large bowl.
+- Add to large bowl.
 
--   Add sugar and vanilla.
+- Add sugar and vanilla.
 
--   Mix on high for 5-6 minutes until light and creamy.
+- Mix on high for 5-6 minutes until light and creamy.
 
--   Serve.
+- Serve.

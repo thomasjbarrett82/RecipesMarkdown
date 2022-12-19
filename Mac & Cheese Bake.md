@@ -1,41 +1,41 @@
--   1 cup uncooked elbow macaroni
+- 1 cup uncooked elbow macaroni
 
--   2 cups corn flakes, crushed
+- 2 cups corn flakes, crushed
 
--   ¼ cup + 2 tbsp butter, melted
+- ¼ cup + 2 tbsp butter, melted
 
--   3 tbsp onion, minced
+- 3 tbsp onion, minced
 
--   1 can cream of mushroom soup
+- 1 can cream of mushroom soup
 
--   1/3 cup milk
+- 1/3 cup milk
 
--   1 ¼ cup shredded Cheddar
+- 1 ¼ cup shredded Cheddar
 
-**PREP**
+## PREP
 
--   Cook macaroni according to directions
+- Cook macaroni according to directions
 
--   Heat oven to 350° F
+- Heat oven to 350° F
 
-**DIRECTIONS**
+## DIRECTIONS
 
--   Mix corn flakes with 2 tbsp butter for topping, set aside
+- Mix corn flakes with 2 tbsp butter for topping, set aside
 
--   Place remaining butter and onion in saucepan over low heat
+- Place remaining butter and onion in saucepan over low heat
 
--   Cook until tender
+- Cook until tender
 
--   Stir in soup, milk, and cheese
+- Stir in soup, milk, and cheese
 
--   Cook until cheese is melted, stirring occasionally
+- Cook until cheese is melted, stirring occasionally
 
--   Remove from heat
+- Remove from heat
 
--   Place cooked macaroni in buttered 8x8x2 baking dish
+- Place cooked macaroni in buttered 8x8x2 baking dish
 
--   Pour cheese sauce over macaroni, stir to combine
+- Pour cheese sauce over macaroni, stir to combine
 
--   Sprinkle with crumb mixture
+- Sprinkle with crumb mixture
 
--   Bake for 30 minutes
+- Bake for 30 minutes

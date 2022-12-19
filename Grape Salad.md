@@ -1,26 +1,26 @@
--   8 oz. sour cream
+- 8 oz. sour cream
 
--   8 oz. cream cheese, softened
+- 8 oz. cream cheese, softened
 
--   ½ cup sugar
+- ½ cup sugar
 
--   1 tbsp. vanilla extract
+- 1 tbsp. vanilla extract
 
--   2 lbs. black & green grapes
+- 2 lbs. black & green grapes
 
--   ½ cup brown sugar
+- ½ cup brown sugar
 
--   ½ cup walnuts, chopped
+- ½ cup walnuts, chopped
 
-**DIRECTIONS**
+## DIRECTIONS
 
--   Add the cream cheese, sour cream, sugar, and vanilla to a large
+- Add the cream cheese, sour cream, sugar, and vanilla to a large
     mixing bowl
 
--   Blend with a mixer until smooth and creamy
+- Blend with a mixer until smooth and creamy
 
--   Fold in grapes until well combined
+- Fold in grapes until well combined
 
--   Top with brown sugar and walnuts
+- Top with brown sugar and walnuts
 
--   Let chill for at least an hour before serving
+- Let chill for at least an hour before serving

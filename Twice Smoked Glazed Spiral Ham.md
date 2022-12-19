@@ -1,48 +1,48 @@
--   8 lb. spiral ham
+- 8 lb. spiral ham
 
--   1 cup chicken stock
+- 1 cup chicken stock
 
--   **GLAZE**:
+### GLAZE
 
-    -   1 cup brown sugar
+    - 1 cup brown sugar
 
-    -   ¼ cup honey
+    - ¼ cup honey
 
-    -   1 tbsp. Dijon mustard
+    - 1 tbsp. Dijon mustard
 
-    -   1 tbsp. Worcestershire sauce
+    - 1 tbsp. Worcestershire sauce
 
-    -   1 tsp. cinnamon
+    - 1 tsp. cinnamon
 
-    -   1 tsp. ginger
+    - 1 tsp. ginger
 
-    -   1 tbsp. BBQ rub mix
+    - 1 tbsp. BBQ rub mix
 
-**PREP**
+## PREP
 
--   Prepare smoker for 225 F
+- Prepare smoker for 225 F
 
-**DIRECTIONS**
+## DIRECTIONS
 
--   Smoke ham, cut side down on grill grates, for 1.5-2 hours
+- Smoke ham, cut side down on grill grates, for 1.5-2 hours
 
--   Transfer ham to large cast iron skillet
+- Transfer ham to large cast iron skillet
 
--   Pour stock over ham and cover tightly with aluminum foil
+- Pour stock over ham and cover tightly with aluminum foil
 
--   Continue cooking at 300 F for 2 more hours
+- Continue cooking at 300 F for 2 more hours
 
-    -   Transfer to oven if not possible in the smoker
+    - Transfer to oven if not possible in the smoker
 
--   Mix glaze ingredients in small pot over low heat
+- Mix glaze ingredients in small pot over low heat
 
--   Stir constantly until it almost comes to a boil
+- Stir constantly until it almost comes to a boil
 
--   Uncover the ham and set it on its side to “fan” the spirals
+- Uncover the ham and set it on its side to “fan” the spirals
 
--   Brush the glaze liberally over the ham
+- Brush the glaze liberally over the ham
 
--   Place under a broiler for 2-3 minutes until glaze starts to
+- Place under a broiler for 2-3 minutes until glaze starts to
     caramelize
 
--   Serve with drippings on the side
+- Serve with drippings on the side

@@ -1,11 +1,11 @@
--   2L bottle lemon-lime soda
+- 2L bottle lemon-lime soda
 
--   2L bottle ginger ale
+- 2L bottle ginger ale
 
--   1 pint sherbet
+- 1 pint sherbet
 
-**DIRECTIONS**
+## DIRECTIONS
 
--   Mix sodas in a large punch bowl
+- Mix sodas in a large punch bowl
 
--   Add sherbet to bowl by the scoop
+- Add sherbet to bowl by the scoop

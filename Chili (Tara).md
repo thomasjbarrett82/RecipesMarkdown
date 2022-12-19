@@ -1,31 +1,31 @@
--   2 lbs. ground beef
+- 2 lbs. ground beef
 
--   2 onions, chopped
+- 2 onions, chopped
 
--   4 bell peppers, chopped
+- 4 bell peppers, chopped
 
--   4 cans beans (mix of kidney and chili)
+- 4 cans beans (mix of kidney and chili)
 
--   2 cans stewed or diced tomatoes
+- 2 cans stewed or diced tomatoes
 
--   1 or 2 jalapenos, diced
+- 1 or 2 jalapenos, diced
 
--   2 packages chili seasoning
+- 2 packages chili seasoning
 
-**PREP**
+## PREP
 
--   Heat instant pot on Sauté
+- Heat instant pot on Sauté
 
-**DIRECTIONS**
+## DIRECTIONS
 
--   Brown beef in pot
+- Brown beef in pot
 
--   Add onions & peppers and cook for 5 minutes
+- Add onions & peppers and cook for 5 minutes
 
--   Add remaining ingredients
+- Add remaining ingredients
 
--   Cover and set to high pressure
+- Cover and set to high pressure
 
--   Cook for 20 minutes
+- Cook for 20 minutes
 
--   Release pressure and serve
+- Release pressure and serve

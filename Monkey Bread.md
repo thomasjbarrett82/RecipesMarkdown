@@ -1,31 +1,31 @@
--   4 cans refrigerated biscuits
+- 4 cans refrigerated biscuits
 
--   (optional) 1 cup chopped pecans
+- (optional) 1 cup chopped pecans
 
--   1 ½ cup brown sugar
+- 1 ½ cup brown sugar
 
--   1 tbsp. cinnamon
+- 1 tbsp. cinnamon
 
--   ¾ cup butter
+- ¾ cup butter
 
-**PREP**
+## PREP
 
--   Heat oven to 350 F
+- Heat oven to 350 F
 
--   Grease a Bundt pan
+- Grease a Bundt pan
 
-**DIRECTIONS**
+## DIRECTIONS
 
--   Cut biscuits into quarters
+- Cut biscuits into quarters
 
-    -   (optional: mix in chopped pecans)
+    - (optional: mix in chopped pecans)
 
--   Melt remaining ingredients in saucepan
+- Melt remaining ingredients in saucepan
 
--   Place half of biscuits in pan
+- Place half of biscuits in pan
 
--   Pour half of sauce over biscuits
+- Pour half of sauce over biscuits
 
--   Repeat with remaining biscuits and sauce
+- Repeat with remaining biscuits and sauce
 
--   Bake for 30-40 minutes
+- Bake for 30-40 minutes

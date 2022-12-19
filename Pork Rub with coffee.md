@@ -1,25 +1,25 @@
--   ½ cup brown sugar
+- ½ cup brown sugar
 
--   ¼ cup kosher salt
+- ¼ cup kosher salt
 
--   2 tsp garlic powder
+- 2 tsp garlic powder
 
--   1 tsp chili powder
+- 1 tsp chili powder
 
--   1 tsp ground coffee
+- 1 tsp ground coffee
 
--   ½ tsp lemon pepper (optional)
+- ½ tsp lemon pepper (optional)
 
--   ½ tsp celery salt
+- ½ tsp celery salt
 
--   1 tsp black pepper
+- 1 tsp black pepper
 
--   ½ tsp allspice
+- ½ tsp allspice
 
--   1 tsp smoked paprika
+- 1 tsp smoked paprika
 
-**PREP**
+## PREP
 
--   Mix all ingredients
+- Mix all ingredients
 
--   Spread over meat
+- Spread over meat

@@ -1,67 +1,67 @@
--   1# Andouille or Italian sausage
+- 1# Andouille or Italian sausage
 
--   1# chicken, chopped
+- 1# chicken, chopped
 
--   4 tbsp olive oil
+- 4 tbsp olive oil
 
--   4 tbsp flour
+- 4 tbsp flour
 
--   8 cups chicken broth/stock
+- 8 cups chicken broth/stock
 
--   1 green bell pepper, diced
+- 1 green bell pepper, diced
 
--   1 yellow onion, diced
+- 1 yellow onion, diced
 
--   3 stalks celery, diced
+- 3 stalks celery, diced
 
--   3 cloves garlic, minced
+- 3 cloves garlic, minced
 
--   1 can diced tomatoes
+- 1 can diced tomatoes
 
--   1 tbsp kosher salt
+- 1 tbsp kosher salt
 
--   ½ tsp black pepper
+- ½ tsp black pepper
 
--   1 tsp thyme
+- 1 tsp thyme
 
--   1 tsp basil
+- 1 tsp basil
 
--   1 tsp oregano
+- 1 tsp oregano
 
--   ¼ tsp cayenne pepper
+- ¼ tsp cayenne pepper
 
--   1# shrimp, peeled, deveined, tails removed
+- 1# shrimp, peeled, deveined, tails removed
 
--   1 package sliced okra (thawed, if frozen)
+- 1 package sliced okra (thawed, if frozen)
 
-**PREP**
+## PREP
 
--   Heat oven to 350° F
+- Heat oven to 350° F
 
--   Heat oven-safe pan or large pot over med-high
+- Heat oven-safe pan or large pot over med-high
 
-**DIRECTIONS**
+## DIRECTIONS
 
--   Brown sausage in pan or pot, remove with slotted spoon and set aside
+- Brown sausage in pan or pot, remove with slotted spoon and set aside
 
--   Brown chicken in pan or pot, remove with slotted spoon and set aside
+- Brown chicken in pan or pot, remove with slotted spoon and set aside
 
--   Add oil and flour to pan and whisk together until smooth
+- Add oil and flour to pan and whisk together until smooth
 
--   Place in oven for 1 – 1 ½ hours, stirring occasionally, until roux
+- Place in oven for 1 – 1 ½ hours, stirring occasionally, until roux
     has taken on a brown color
 
--   Once roux is desired color, remove from oven and place over medium
+- Once roux is desired color, remove from oven and place over medium
     heat
 
-    -   Move to large pot if not already
+    - Move to large pot if not already
 
--   Add onions, celery, peppers, and garlic and cook for 5 minutes
+- Add onions, celery, peppers, and garlic and cook for 5 minutes
 
--   Add remaining ingredients except shrimp and okra
+- Add remaining ingredients except shrimp and okra
 
--   Bring to a boil and simmer for 30 minutes
+- Bring to a boil and simmer for 30 minutes
 
--   Add shrimp and okra and cook for 10 minutes until shrimp is done
+- Add shrimp and okra and cook for 10 minutes until shrimp is done
 
--   Serve over rice
+- Serve over rice

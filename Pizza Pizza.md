@@ -1,54 +1,54 @@
--   2 T. sugar
+- 2 T. sugar
 
--   1 T. kosher salt
+- 1 T. kosher salt
 
--   1 T. + 2 t. EVOO
+- 1 T. + 2 t. EVOO
 
--   ¾ cup warm water
+- ¾ cup warm water
 
--   2 cups bread flour
+- 2 cups bread flour
 
--   1 t. instant yeast
+- 1 t. instant yeast
 
--   1.5 ounces pizza sauce
+- 1.5 ounces pizza sauce
 
--   Shredded cheese
+- Shredded cheese
 
--   Additional toppings, as desired
+- Additional toppings, as desired
 
-**PREP**
+## PREP
 
--   Prepare the dough 24 hours ahead
+- Prepare the dough 24 hours ahead
 
--   Preheat the oven to 500 degrees F and move rack to the bottom
+- Preheat the oven to 500 degrees F and move rack to the bottom
 
-**DIRECTIONS**
+## DIRECTIONS
 
--   Put the sugar, salt, 1 T. oil, water, yeast, and flour into a bread
+- Put the sugar, salt, 1 T. oil, water, yeast, and flour into a bread
     machine or standing mixer bowl
 
--   Run through a dough cycle, or mix for 15-20 minutes on medium speed
+- Run through a dough cycle, or mix for 15-20 minutes on medium speed
 
--   Roll out the dough into a smooth ball and place into a glass bowl
+- Roll out the dough into a smooth ball and place into a glass bowl
 
--   Coat with 2 t. oil and cover with plastic wrap
+- Coat with 2 t. oil and cover with plastic wrap
 
--   Refrigerate for 24 hours
+- Refrigerate for 24 hours
 
--   Remove the dough 1 hour before cooking and split into 2 equal balls
+- Remove the dough 1 hour before cooking and split into 2 equal balls
 
--   Cover and rest for 30 minutes
+- Cover and rest for 30 minutes
 
--   Stretch or throw the dough to form a round disc
+- Stretch or throw the dough to form a round disc
 
--   Place onto a pizza peel
+- Place onto a pizza peel
 
--   Brush the dough with EVOO
+- Brush the dough with EVOO
 
--   Spread pizza sauce evenly around the pizza
+- Spread pizza sauce evenly around the pizza
 
--   Sprinkle toppings and cheese over the sauce
+- Sprinkle toppings and cheese over the sauce
 
--   Bake for 7-10 minutes until golden brown and bubbly
+- Bake for 7-10 minutes until golden brown and bubbly
 
--   Rest for 3-5 minutes before slicing and serving
+- Rest for 3-5 minutes before slicing and serving

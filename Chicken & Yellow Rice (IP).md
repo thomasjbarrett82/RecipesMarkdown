@@ -1,49 +1,49 @@
--   1 tsp. olive oil
+- 1 tsp. olive oil
 
--   2 pounds chicken breast or thigh, cubed
+- 2 pounds chicken breast or thigh, cubed
 
--   1 yellow onion, diced
+- 1 yellow onion, diced
 
--   1 cup carrots, sliced
+- 1 cup carrots, sliced
 
--   2 cups chicken broth
+- 2 cups chicken broth
 
--   2 cups brown rice
+- 2 cups brown rice
 
--   1 cup frozen peas
+- 1 cup frozen peas
 
--   1 cup frozen corn
+- 1 cup frozen corn
 
--   1 tsp. ground turmeric
+- 1 tsp. ground turmeric
 
--   1 tsp. ground oregano
+- 1 tsp. ground oregano
 
--   1 tsp. salt
+- 1 tsp. salt
 
--   ½ tsp. black pepper
+- ½ tsp. black pepper
 
--   1 tbsp. hot sauce
+- 1 tbsp. hot sauce
 
-**PREP**
+## PREP
 
--   Heat olive oil in IP over Sauté
+- Heat olive oil in IP over Sauté
 
-**DIRECTIONS**
+## DIRECTIONS
 
--   Brown chicken in olive oil, remove and set aside
+- Brown chicken in olive oil, remove and set aside
 
--   Add onion and carrots, cook until onion is translucent
+- Add onion and carrots, cook until onion is translucent
 
--   Add remaining ingredients and mix together
+- Add remaining ingredients and mix together
 
--   Arrange chicken on top of the mixture
+- Arrange chicken on top of the mixture
 
--   Close lid and seal
+- Close lid and seal
 
--   Cook on MANUAL for 25 minutes
+- Cook on MANUAL for 25 minutes
 
--   Allow pressure to lower naturally for 15 minutes
+- Allow pressure to lower naturally for 15 minutes
 
--   Vent any remaining pressure
+- Vent any remaining pressure
 
--   Mix chicken into the rice & vegetables before serving
+- Mix chicken into the rice & vegetables before serving

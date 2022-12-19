@@ -1,31 +1,31 @@
--   15 oz can northern beans
+- 15 oz can northern beans
 
--   1 can tomato juice
+- 1 can tomato juice
 
--   2 carrots, peeled and chopped
+- 2 carrots, peeled and chopped
 
--   2 stalks celery, chopped
+- 2 stalks celery, chopped
 
--   ½ yellow onion, diced
+- ½ yellow onion, diced
 
--   2 cloves garlic, minced
+- 2 cloves garlic, minced
 
--   1 tsp instant chicken bouillon granules
+- 1 tsp instant chicken bouillon granules
 
--   1 tsp ground basil
+- 1 tsp ground basil
 
--   ½ tsp ground oregano
+- ½ tsp ground oregano
 
--   1# chicken, skin removed
+- 1# chicken, skin removed
 
--   1# ring sausage, sliced
+- 1# ring sausage, sliced
 
-**DIRECTIONS**
+## DIRECTIONS
 
--   In crockpot, combine beans, juice, carrots, celery, onion, garlic,
+- In crockpot, combine beans, juice, carrots, celery, onion, garlic,
     granules, basil, and oregano
 
--   Place chicken and sausage on top of mixture
+- Place chicken and sausage on top of mixture
 
--   Cover, cook on LOW 10 hours or HIGH 5 hours until chicken is
+- Cover, cook on LOW 10 hours or HIGH 5 hours until chicken is
     fork-tender

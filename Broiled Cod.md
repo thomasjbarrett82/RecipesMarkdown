@@ -1,31 +1,31 @@
--   4 fillets cod (or other white fish)
+- 4 fillets cod (or other white fish)
 
--   EVOO
+- EVOO
 
--   ½ cup mayo
+- ½ cup mayo
 
--   2 tsp. lemon zest
+- 2 tsp. lemon zest
 
--   1 tbsp. lemon juice
+- 1 tbsp. lemon juice
 
--   1 tbsp. minced shallots
+- 1 tbsp. minced shallots
 
--   1 ½ tsp. anchovy paste
+- 1 ½ tsp. anchovy paste
 
--   2 tsp. fresh thyme
+- 2 tsp. fresh thyme
 
-**PREP**
+## PREP
 
--   Preheat the broiler
+- Preheat the broiler
 
-**DIRECTIONS**
+## DIRECTIONS
 
--   Lay the fillets on a pan and brush with EVOO on both sides
+- Lay the fillets on a pan and brush with EVOO on both sides
 
--   Lay the fillets skin side down
+- Lay the fillets skin side down
 
--   Mix the remaining ingredients
+- Mix the remaining ingredients
 
--   Spread the sauce over the fish
+- Spread the sauce over the fish
 
--   Broil until just cooked through, 3-7 minutes, depending on thickness
+- Broil until just cooked through, 3-7 minutes, depending on thickness

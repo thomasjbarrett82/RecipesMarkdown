@@ -1,37 +1,37 @@
--   2 cups crushed graham crackers
+- 2 cups crushed graham crackers
 
--   ½ stick melted butter
+- ½ stick melted butter
 
--   3 8-ounce bars cream cheese, softened
+- 3 8-ounce bars cream cheese, softened
 
--   1 ¼ cup sugar
+- 1 ¼ cup sugar
 
--   2 cups sour cream
+- 2 cups sour cream
 
--   2 large eggs
+- 2 large eggs
 
--   2 tsp pure vanilla extract
+- 2 tsp pure vanilla extract
 
--   1 cup fruit preserves
+- 1 cup fruit preserves
 
-**PREP**
+## PREP
 
--   Heat the oven to 350 F
+- Heat the oven to 350 F
 
-**DIRECTIONS**
+## DIRECTIONS
 
--   Mix the crackers and butter
+- Mix the crackers and butter
 
--   Press the mixture into a 9 inch pie or cheesecake pan
+- Press the mixture into a 9 inch pie or cheesecake pan
 
--   Bake for 5 minutes
+- Bake for 5 minutes
 
--   Beat the eggs, sour cream, sugar, cream cheese, and vanilla
+- Beat the eggs, sour cream, sugar, cream cheese, and vanilla
 
--   Pour the mixture over the crust
+- Pour the mixture over the crust
 
--   Bake for 45 minutes until it starts to turn golden brown on top
+- Bake for 45 minutes until it starts to turn golden brown on top
 
--   Remove and let cool in the fridge for at least 4 hours
+- Remove and let cool in the fridge for at least 4 hours
 
--   Spread the preserves over the cheesecake before serving
+- Spread the preserves over the cheesecake before serving

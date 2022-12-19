@@ -1,39 +1,39 @@
--   6 cups chicken broth/stock
+- 6 cups chicken broth/stock
 
--   1# boneless, skinless chicken breast
+- 1# boneless, skinless chicken breast
 
--   ½ yellow onion, diced
+- ½ yellow onion, diced
 
--   2 carrots, peeled and sliced
+- 2 carrots, peeled and sliced
 
--   2 celery stalks, chopped
+- 2 celery stalks, chopped
 
--   2 oz egg noodles OR ½ cup uncooked rice
+- 2 oz egg noodles OR ½ cup uncooked rice
 
--   3 tbsp chopped fresh parsley
+- 3 tbsp chopped fresh parsley
 
--   Salt & pepper to taste
+- Salt & pepper to taste
 
-**PREP**
+## PREP
 
--   Place large saucepan/pot over med-high heat
+- Place large saucepan/pot over med-high heat
 
-**DIRECTIONS**
+## DIRECTIONS
 
--   Put 1 cup of broth in saucepan, bring to a simmer
+- Put 1 cup of broth in saucepan, bring to a simmer
 
--   Add chicken, cover and braise until no pink remains, 8-10 minutes
+- Add chicken, cover and braise until no pink remains, 8-10 minutes
 
--   Remove chicken from heat, let rest, and then chop into cubes
+- Remove chicken from heat, let rest, and then chop into cubes
 
--   Return broth to simmer and add vegetables
+- Return broth to simmer and add vegetables
 
--   Cook for 10 minutes until softened
+- Cook for 10 minutes until softened
 
--   Skim any foam that may rise
+- Skim any foam that may rise
 
--   Add chicken, noodles/rice, parsley, and remaining broth
+- Add chicken, noodles/rice, parsley, and remaining broth
 
--   Simmer until noodles/rice are tender, 5/20 minutes
+- Simmer until noodles/rice are tender, 5/20 minutes
 
--   Serves 4-6
+- Serves 4-6

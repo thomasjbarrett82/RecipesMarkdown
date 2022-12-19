@@ -1,32 +1,32 @@
--   2 eggs OR egg-substitute equivalent
+- 2 eggs OR egg-substitute equivalent
 
--   2 tbsp sugar
+- 2 tbsp sugar
 
--   1 cup buttermilk OR 1 cup rice milk & 1 tbsp white vinegar
+- 1 cup buttermilk OR 1 cup rice milk & 1 tbsp white vinegar
 
--   2 tbsp oil
+- 2 tbsp oil
 
--   1 ½ cup flour OR 1 ½ cup gluten-free all-purpose flour
+- 1 ½ cup flour OR 1 ½ cup gluten-free all-purpose flour
 
--   1 tsp baking powder
+- 1 tsp baking powder
 
--   1 tsp baking soda
+- 1 tsp baking soda
 
--   ½ tsp salt
+- ½ tsp salt
 
-**PREP**
+## PREP
 
--   Heat skillet on medium-low
+- Heat skillet on medium-low
 
-**DIRECTIONS**
+## DIRECTIONS
 
--   Beat eggs (or substitute) with sugar until creamy
+- Beat eggs (or substitute) with sugar until creamy
 
--   Add buttermilk and oil and mix well
+- Add buttermilk and oil and mix well
 
--   Mix in remaining ingredients
+- Mix in remaining ingredients
 
--   Let sit for a few minutes to aerate
+- Let sit for a few minutes to aerate
 
--   Drop onto hot skillet by ¼ cupful and cook until golden brown on
+- Drop onto hot skillet by ¼ cupful and cook until golden brown on
     each side

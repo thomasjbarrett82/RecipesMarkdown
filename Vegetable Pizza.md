@@ -1,25 +1,25 @@
--   2 packages crescent rolls
+- 2 packages crescent rolls
 
--   16 oz. sour cream
+- 16 oz. sour cream
 
--   1 tsp. dill weed
+- 1 tsp. dill weed
 
--   1 pkg. ranch dressing mix
+- 1 pkg. ranch dressing mix
 
--   3-4 cups mixed fresh veggies, chopped/sliced/grated
+- 3-4 cups mixed fresh veggies, chopped/sliced/grated
 
-**PREP**
+## PREP
 
--   Heat oven to 350 F
+- Heat oven to 350 F
 
-**DIRECTIONS**
+## DIRECTIONS
 
--   Place roll dough in cookie sheet and bake for 10 minutes
+- Place roll dough in cookie sheet and bake for 10 minutes
 
--   Remove and let cool
+- Remove and let cool
 
--   Mix sour cream, dill, and ranch dressing
+- Mix sour cream, dill, and ranch dressing
 
--   Spread over crust
+- Spread over crust
 
--   Top with mixed veggies
+- Top with mixed veggies

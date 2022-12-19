@@ -1,29 +1,29 @@
--   1 cup peanut butter
+- 1 cup peanut butter
 
--   2 cups powdered sugar
+- 2 cups powdered sugar
 
--   ½ cup butter, melted
+- ½ cup butter, melted
 
--   2 ½ lbs. chocolate almond bark
+- 2 ½ lbs. chocolate almond bark
 
-**PREP**
+## PREP
 
--   Line cupcake pan or mini candy cups
+- Line cupcake pan or mini candy cups
 
-**DIRECTIONS**
+## DIRECTIONS
 
--   Mix peanut butter, sugar, and butter
+- Mix peanut butter, sugar, and butter
 
--   Roll into small balls and slightly flatten on wax paper
+- Roll into small balls and slightly flatten on wax paper
 
--   Place in fridge to cool
+- Place in fridge to cool
 
--   Melt chocolate in double boiler
+- Melt chocolate in double boiler
 
--   Place small amount of chocolate in each candy cup
+- Place small amount of chocolate in each candy cup
 
--   Add peanut butter ball
+- Add peanut butter ball
 
--   Cover with more chocolate
+- Cover with more chocolate
 
--   Place in fridge to cool before serving
+- Place in fridge to cool before serving

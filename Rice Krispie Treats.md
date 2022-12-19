@@ -1,29 +1,29 @@
--   1 box Rice Krispies
+- 1 box Rice Krispies
 
--   1 stick butter (Kerry Gold is preferred)
+- 1 stick butter (Kerry Gold is preferred)
 
--   2 bags Jet-Puffed mini marshmallows
+- 2 bags Jet-Puffed mini marshmallows
 
--   ½ tsp. kosher salt
+- ½ tsp. kosher salt
 
-**DIRECTIONS**
+## DIRECTIONS
 
--   Lightly toast the cereal in a large wok over medium-high heat
+- Lightly toast the cereal in a large wok over medium-high heat
 
--   Remove to a large bowl
+- Remove to a large bowl
 
--   Brown the butter in the wok
+- Brown the butter in the wok
 
--   Add the salt
+- Add the salt
 
--   Turn down the heat to low
+- Turn down the heat to low
 
--   Add the marshmallows
+- Add the marshmallows
 
--   Stir until melted
+- Stir until melted
 
--   Add the cereal back in and stir until thoroughly combined
+- Add the cereal back in and stir until thoroughly combined
 
--   Transfer to lightly greased casserole dish
+- Transfer to lightly greased casserole dish
 
--   Let cool before serving
+- Let cool before serving

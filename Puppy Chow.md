@@ -1,23 +1,23 @@
--   6 cups Crispix or Rice Chex
+- 6 cups Crispix or Rice Chex
 
--   1 stick butter
+- 1 stick butter
 
--   6 oz. milk chocolate chips
+- 6 oz. milk chocolate chips
 
--   ½ cup peanut butter
+- ½ cup peanut butter
 
--   1 ½ cup powdered sugar
+- 1 ½ cup powdered sugar
 
-**DIRECTIONS**
+## DIRECTIONS
 
--   Pour cereal into a large bowl
+- Pour cereal into a large bowl
 
--   Melt butter, chocolate chips, and peanut butter in double boiler
+- Melt butter, chocolate chips, and peanut butter in double boiler
 
--   Pour over cereal and mix carefully
+- Pour over cereal and mix carefully
 
--   Sprinkle with powdered sugar while mixing
+- Sprinkle with powdered sugar while mixing
 
-    -   Alternately, toss in a large paper bag with sugar
+    - Alternately, toss in a large paper bag with sugar
 
--   Spread onto cookie sheet to cool
+- Spread onto cookie sheet to cool

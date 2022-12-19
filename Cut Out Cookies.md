@@ -1,31 +1,31 @@
--   1 cup butter
+- 1 cup butter
 
--   1 cup sugar
+- 1 cup sugar
 
--   1 egg
+- 1 egg
 
--   1 tsp. vanilla
+- 1 tsp. vanilla
 
--   2 tsp. baking powder
+- 2 tsp. baking powder
 
--   3 cups flour
+- 3 cups flour
 
-**PREP**
+## PREP
 
--   Heat oven to 375 F
+- Heat oven to 375 F
 
--   Line baking pan with parchment (optional)
+- Line baking pan with parchment (optional)
 
-**DIRECTIONS**
+## DIRECTIONS
 
--   In large bowl, cream sugar and butter
+- In large bowl, cream sugar and butter
 
--   Mix in egg and vanilla
+- Mix in egg and vanilla
 
--   In medium bowl, combine baking powder and flour
+- In medium bowl, combine baking powder and flour
 
--   Stir dry into wet, avoiding overmixing
+- Stir dry into wet, avoiding overmixing
 
--   Drop by spoonful onto baking pan
+- Drop by spoonful onto baking pan
 
--   Bake for 6-7 minutes
+- Bake for 6-7 minutes

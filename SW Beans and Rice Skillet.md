@@ -1,45 +1,45 @@
--   2 cups uncooked rice
+- 2 cups uncooked rice
 
--   1 pound ground beef or sausage (optional)
+- 1 pound ground beef or sausage (optional)
 
--   1 medium onion, diced
+- 1 medium onion, diced
 
--   2 garlic cloves, minced
+- 2 garlic cloves, minced
 
--   1 can chili beans
+- 1 can chili beans
 
--   1 can kidney beans, rinsed
+- 1 can kidney beans, rinsed
 
--   1 can diced or stewed tomatoes
+- 1 can diced or stewed tomatoes
 
--   1 can refried beans
+- 1 can refried beans
 
--   1 can chicken or beef broth
+- 1 can chicken or beef broth
 
--   1 tbsp. chili powder
+- 1 tbsp. chili powder
 
--   1 tbsp. cumin
+- 1 tbsp. cumin
 
--   1 tsp. kosher salt
+- 1 tsp. kosher salt
 
--   1 cup shredded Cheddar, Velveeta, or Pepperjack cheese
+- 1 cup shredded Cheddar, Velveeta, or Pepperjack cheese
 
-**PREP**
+## PREP
 
--   Cook rice according to directions
+- Cook rice according to directions
 
--   Heat large skillet or Dutch oven over medium heat
+- Heat large skillet or Dutch oven over medium heat
 
-**DIRECTIONS**
+## DIRECTIONS
 
--   Brown the meat with the onions
+- Brown the meat with the onions
 
--   Add the garlic
+- Add the garlic
 
--   Stir in everything else except the cheese
+- Stir in everything else except the cheese
 
--   Bring to a boil and let simmer at least 15 minutes
+- Bring to a boil and let simmer at least 15 minutes
 
--   Add the rice
+- Add the rice
 
--   Stir in the cheese and let it melt before serving
+- Stir in the cheese and let it melt before serving

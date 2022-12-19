@@ -1,45 +1,45 @@
--   4-5-pound lean boneless pork roast, trimmed fat, chunked
+- 4-5-pound lean boneless pork roast, trimmed fat, chunked
 
--   Salt & pepper
+- Salt & pepper
 
--   1 tbsp. EVOO
+- 1 tbsp. EVOO
 
--   1 cup beer (or chicken stock)
+- 1 cup beer (or chicken stock)
 
--   1 head of garlic, minced
+- 1 head of garlic, minced
 
--   ½ cup OJ
+- ½ cup OJ
 
--   ¼ cup lime juice
+- ¼ cup lime juice
 
--   1 tsp. dried oregano
+- 1 tsp. dried oregano
 
--   1 tsp. ground cumin
+- 1 tsp. ground cumin
 
--   1 tsp. salt
+- 1 tsp. salt
 
--   ½ tsp. black pepper
+- ½ tsp. black pepper
 
-**DIRECTIONS**
+## DIRECTIONS
 
--   Season the pork roast with salt & pepper, set aside
+- Season the pork roast with salt & pepper, set aside
 
--   Heat the EVOO in pressure cooker (Sauté)
+- Heat the EVOO in pressure cooker (Sauté)
 
--   Mix remaining sauce ingredients in a bowl, set aside
+- Mix remaining sauce ingredients in a bowl, set aside
 
--   Saute the roast in the oil
+- Saute the roast in the oil
 
--   Stir in the sauce and toss to combine
+- Stir in the sauce and toss to combine
 
--   Close lid and set to High Pressure (or Meat setting) for 45 minutes
+- Close lid and set to High Pressure (or Meat setting) for 45 minutes
 
--   Let vent naturally for 15 minutes before opening
+- Let vent naturally for 15 minutes before opening
 
--   Shred the pork
+- Shred the pork
 
--   Transfer to a large baking sheet
+- Transfer to a large baking sheet
 
--   Broil for 15 minutes, ladling juices over it, until crispy
+- Broil for 15 minutes, ladling juices over it, until crispy
 
--   Serve
+- Serve

@@ -1,44 +1,44 @@
--   ½ cup butter
+- ½ cup butter
 
--   ½ cup flour
+- ½ cup flour
 
--   2 cloves garlic, minced
+- 2 cloves garlic, minced
 
--   1 tsp onion powder
+- 1 tsp onion powder
 
--   1 tsp Worcestershire
+- 1 tsp Worcestershire
 
--   ½ tsp salt & pepper
+- ½ tsp salt & pepper
 
--   ½ tsp dry mustard
+- ½ tsp dry mustard
 
--   3 cups chicken broth
+- 3 cups chicken broth
 
--   1 ½ cup heavy cream
+- 1 ½ cup heavy cream
 
--   1 cup dark beer
+- 1 cup dark beer
 
--   16 oz shredded Cheddar
+- 16 oz shredded Cheddar
 
-**PREP**
+## PREP
 
--   Place large, heavy pan over med-high heat
+- Place large, heavy pan over med-high heat
 
-**DIRECTIONS**
+## DIRECTIONS
 
--   Melt butter in pan and add flour
+- Melt butter in pan and add flour
 
--   Whisk and cook until smooth & bubbly
+- Whisk and cook until smooth & bubbly
 
--   Add garlic, onion, Worcestershire, salt, pepper, and mustard
+- Add garlic, onion, Worcestershire, salt, pepper, and mustard
 
--   Gradually stir in broth, cream, and beer
+- Gradually stir in broth, cream, and beer
 
--   Cook until thickened
+- Cook until thickened
 
--   Slowly add cheese by small handfuls, waiting until melted to add
+- Slowly add cheese by small handfuls, waiting until melted to add
     more
 
--   Do not boil
+- Do not boil
 
--   Serve when all cheese is melted into soup
+- Serve when all cheese is melted into soup

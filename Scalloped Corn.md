@@ -1,30 +1,30 @@
--   2 cans creamed corn
+- 2 cans creamed corn
 
--   ¾ can milk
+- ¾ can milk
 
--   4 tbsp. butter, melted
+- 4 tbsp. butter, melted
 
--   2 eggs, beaten
+- 2 eggs, beaten
 
--   Salt & pepper
+- Salt & pepper
 
--   1 tbsp. sugar
+- 1 tbsp. sugar
 
--   1 bag saltine crackers, crushed
+- 1 bag saltine crackers, crushed
 
--   1 cup corn flakes, crushed
+- 1 cup corn flakes, crushed
 
-**PREP**
+## PREP
 
--   Heat oven to 350 F
+- Heat oven to 350 F
 
--   Lightly grease a casserole dish
+- Lightly grease a casserole dish
 
-**DIRECTIONS**
+## DIRECTIONS
 
--   Mix corn, milk, butter, eggs, s&p, sugar, & crackers in casserole
+- Mix corn, milk, butter, eggs, s&p, sugar, & crackers in casserole
     dish
 
--   Top with corn flakes
+- Top with corn flakes
 
--   Bake for 40-50 minutes
+- Bake for 40-50 minutes

@@ -1,83 +1,87 @@
--   **CHICKEN MARINADE**:
+# Halal Cart Chicken and Rice with White Sauce
 
-    -   2 tbsp. lemon juice
+## INGREDIENTS
 
-    -   1 tbsp. fresh oregano
+### CHICKEN MARINADE
 
-    -   1 tsp. cumin
+    - 2 tbsp. lemon juice
 
-    -   3 garlic cloves, minced
+    - 1 tbsp. fresh oregano
 
-    -   ½ cup EVOO
+    - 1 tsp. cumin
 
-    -   Salt & pepper
+    - 3 garlic cloves, minced
 
--   2 lbs. boneless skinless chicken, chopped
+    - ½ cup EVOO
 
--   1 tbsp. EVOO
+    - Salt & pepper
 
--   **RICE**:
+- 2 lbs. boneless skinless chicken, chopped
 
-    -   2 tbsp. butter
+- 1 tbsp. EVOO
 
-    -   1 tsp. turmeric
+### RICE
 
-    -   1 tsp. cumin
+    - 2 tbsp. butter
 
-    -   1 ½ cups white rice
+    - 1 tsp. turmeric
 
-    -   2 ½ cups chicken broth
+    - 1 tsp. cumin
 
--   **WHITE SAUCE**:
+    - 1 ½ cups white rice
 
-    -   ½ cup mayo
+    - 2 ½ cups chicken broth
 
-    -   ½ cup plain Greek yogurt
+### WHITE SAUCE
 
-    -   1 tbsp. sugar
+    - ½ cup mayo
 
-    -   2 tbsp. vinegar
+    - ½ cup plain Greek yogurt
 
-    -   1 tsp. lemon juice
+    - 1 tbsp. sugar
 
-    -   ¼ cup fresh parsley
+    - 2 tbsp. vinegar
 
-    -   Salt & pepper
+    - 1 tsp. lemon juice
 
--   Shredded lettuce
+    - ¼ cup fresh parsley
 
--   2 large tomatoes, diced
+    - Salt & pepper
 
--   Pita bread, toasted, buttered, and sliced
+- Shredded lettuce
 
-**PREP**
+- 2 large tomatoes, diced
 
--   Blend marinade and reserve half for later
+- Pita bread, toasted, buttered, and sliced
 
--   Marinate chicken for 1-4 hours before cooking
+## PREP
 
--   Combine white sauce ingredients in a bowl and refrigerate
+- Blend marinade and reserve half for later
 
-**DIRECTIONS**
+- Marinate chicken for 1-4 hours before cooking
 
--   Heat some oil in a large skillet or Dutch Oven over med-high heat
+- Combine white sauce ingredients in a bowl and refrigerate
 
--   Cook chicken until well browned
+## DIRECTIONS
 
--   Remove and set aside with the reserved marinade
+- Heat some oil in a large skillet or Dutch Oven over med-high heat
 
--   Melt butter in skillet
+- Cook chicken until well browned
 
--   Add spices & rice and stir to combine and lightly toast
+- Remove and set aside with the reserved marinade
 
--   Add chicken broth and bring to a boil
+- Melt butter in skillet
 
--   Cover and simmer for 15 minutes
+- Add spices & rice and stir to combine and lightly toast
 
--   Remove from heat and let sit another 10-15 minutes until fully
+- Add chicken broth and bring to a boil
+
+- Cover and simmer for 15 minutes
+
+- Remove from heat and let sit another 10-15 minutes until fully
     absorbed
 
--   Return chicken and juices to the skillet and cook until heated
+- Return chicken and juices to the skillet and cook until heated
     through
 
--   Serve with lettuce, tomatoes, pita slices, and white sauce
+- Serve with lettuce, tomatoes, pita slices, and white sauce

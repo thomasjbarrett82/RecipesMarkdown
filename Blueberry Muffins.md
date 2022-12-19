@@ -1,47 +1,47 @@
--   1 ¼ cups whole wheat flour
+- 1 ¼ cups whole wheat flour
 
--   ¼ tsp. salt
+- ¼ tsp. salt
 
--   1 tbsp. baking powder
+- 1 tbsp. baking powder
 
--   ½ tsp. cinnamon
+- ½ tsp. cinnamon
 
--   ½ tsp. nutmeg
+- ½ tsp. nutmeg
 
--   1 ½ cups Kellog’s All-Bran Buds cereal
+- 1 ½ cups Kellog’s All-Bran Buds cereal
 
--   1 ¼ cups skim milk
+- 1 ¼ cups skim milk
 
--   2 egg whites
+- 2 egg whites
 
--   ½ cup honey
+- ½ cup honey
 
--   ¼ cup canola oil
+- ¼ cup canola oil
 
--   1 tsp. lemon peel, grated
+- 1 tsp. lemon peel, grated
 
--   1 cup blueberries
+- 1 cup blueberries
 
-**PREP**
+## PREP
 
--   Fill a 12-cup muffin tin with liners
+- Fill a 12-cup muffin tin with liners
 
--   Heat oven to 400° F
+- Heat oven to 400° F
 
-**DIRECTIONS**
+## DIRECTIONS
 
--   Stir together flour, salt, baking powder, cinnamon, and nutmeg
+- Stir together flour, salt, baking powder, cinnamon, and nutmeg
 
--   In a large bowl mix cereal & milk
+- In a large bowl mix cereal & milk
 
--   Let stand for 2+ minutes to soften the cereal
+- Let stand for 2+ minutes to soften the cereal
 
--   Beat egg whites and add to cereal mixture
+- Beat egg whites and add to cereal mixture
 
--   Add the honey, canola oil, lemon peel, and blueberries and mix
+- Add the honey, canola oil, lemon peel, and blueberries and mix
 
--   Add the dry ingredients and stir until fully mixed
+- Add the dry ingredients and stir until fully mixed
 
--   Pour into muffin tin liners
+- Pour into muffin tin liners
 
--   Bake for 20 minutes
+- Bake for 20 minutes

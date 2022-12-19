@@ -1,39 +1,39 @@
--   4 large portabellas
+- 4 large portabellas
 
--   1 cup olive oil
+- 1 cup olive oil
 
--   2 tbsp balsamic
+- 2 tbsp balsamic
 
--   2 cloves garlic, minced
+- 2 cloves garlic, minced
 
--   1 jalapeño, minced
+- 1 jalapeño, minced
 
--   2 poblano peppers, halved
+- 2 poblano peppers, halved
 
--   1 sweet onion, sliced large
+- 1 sweet onion, sliced large
 
--   4 slices pepper-jack cheese
+- 4 slices pepper-jack cheese
 
--   2 avocados, sliced
+- 2 avocados, sliced
 
--   4 hamburger buns
+- 4 hamburger buns
 
-**PREP**
+## PREP
 
--   Marinate mushrooms at least 2 hours before cooking
+- Marinate mushrooms at least 2 hours before cooking
 
--   Heat grill to med-high
+- Heat grill to med-high
 
-**DIRECTIONS**
+## DIRECTIONS
 
--   Mix oil, balsamic, garlic, & jalapeño in bag
+- Mix oil, balsamic, garlic, & jalapeño in bag
 
--   Marinate mushrooms at least 2 hours, gill side up
+- Marinate mushrooms at least 2 hours, gill side up
 
--   Skewer poblanos and onion slices, brush with olive oil
+- Skewer poblanos and onion slices, brush with olive oil
 
--   Grill mushrooms and skewers until browned
+- Grill mushrooms and skewers until browned
 
--   Assemble burgers
+- Assemble burgers
 
-    -   Bun – mushroom – cheese – pepper – onion – avocado - Bun
+    - Bun – mushroom – cheese – pepper – onion – avocado - Bun

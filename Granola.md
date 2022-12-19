@@ -1,35 +1,35 @@
--   4 cups old-fashioned oats
+- 4 cups old-fashioned oats
 
--   1 cup sliced almonds
+- 1 cup sliced almonds
 
--   1 cup shredded coconut
+- 1 cup shredded coconut
 
--   ½ cup ground flax or wheat germ
+- ½ cup ground flax or wheat germ
 
--   1 tsp. cinnamon
+- 1 tsp. cinnamon
 
--   1 cup dried fruit
+- 1 cup dried fruit
 
--   ¼ cup EVOO
+- ¼ cup EVOO
 
--   ½ cup honey
+- ½ cup honey
 
--   1 tsp. vanilla extract
+- 1 tsp. vanilla extract
 
-**PREP**
+## PREP
 
--   Heat oven to 250° F
+- Heat oven to 250° F
 
-**DIRECTIONS**
+## DIRECTIONS
 
--   Mix dry ingredients in large bowl
+- Mix dry ingredients in large bowl
 
--   Mix wet ingredients in medium bowl to combine
+- Mix wet ingredients in medium bowl to combine
 
--   Pour over dry ingredients and fold together
+- Pour over dry ingredients and fold together
 
--   Bake for 2 hours, stirring occasionally
+- Bake for 2 hours, stirring occasionally
 
--   Remove and let cool
+- Remove and let cool
 
--   Store in airtight container
+- Store in airtight container

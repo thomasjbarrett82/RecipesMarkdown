@@ -1,41 +1,41 @@
--   5 oz. canned tuna, drained well
+- 5 oz. canned tuna, drained well
 
--   ½ cup mayo
+- ½ cup mayo
 
--   2 tbsp. Panko or bread crumbs
+- 2 tbsp. Panko or bread crumbs
 
--   Salt & pepper
+- Salt & pepper
 
--   Butter
+- Butter
 
--   4 slices bread
+- 4 slices bread
 
--   4 slices American or Cheddar cheese
+- 4 slices American or Cheddar cheese
 
-**PREP**
+## PREP
 
--   Heat large heavy pan over medium-low heat
+- Heat large heavy pan over medium-low heat
 
-**DIRECTIONS**
+## DIRECTIONS
 
--   Combine tuna, mayo, & panko in small mixing bowl
+- Combine tuna, mayo, & panko in small mixing bowl
 
--   Mash vigorously until almost no flakes of tuna remain
+- Mash vigorously until almost no flakes of tuna remain
 
--   Season with salt & pepper
+- Season with salt & pepper
 
--   Melt butter in the pan
+- Melt butter in the pan
 
--   Place half of bread and cheese
+- Place half of bread and cheese
 
--   Spoon tuna mixture over the two sandwich halves
+- Spoon tuna mixture over the two sandwich halves
 
--   Cover with remaining cheese and bread
+- Cover with remaining cheese and bread
 
--   Cook for ~3 minutes until golden brown
+- Cook for ~3 minutes until golden brown
 
--   Remove and melt a little more butter before flipping
+- Remove and melt a little more butter before flipping
 
--   Cook other side to golden brown
+- Cook other side to golden brown
 
--   If not melted enough, bake or microwave until happy
+- If not melted enough, bake or microwave until happy

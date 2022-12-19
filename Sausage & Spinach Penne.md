@@ -1,41 +1,41 @@
--   1# penne pasta
+- 1# penne pasta
 
--   2 tbsp olive oil
+- 2 tbsp olive oil
 
--   1 small onion, chopped
+- 1 small onion, chopped
 
--   3 cloves garlic, minced
+- 3 cloves garlic, minced
 
--   1# Italian sausage
+- 1# Italian sausage
 
--   1 package spinach
+- 1 package spinach
 
--   1 can northern beans, drained & rinsed
+- 1 can northern beans, drained & rinsed
 
--   1 cup chicken broth
+- 1 cup chicken broth
 
--   Parmesan, salt & pepper to taste
+- Parmesan, salt & pepper to taste
 
-**PREP**
+## PREP
 
--   Heat large pot with water for pasta
+- Heat large pot with water for pasta
 
-**DIRECTIONS**
+## DIRECTIONS
 
--   Cook pasta according to box, drain and set aside
+- Cook pasta according to box, drain and set aside
 
-    -   Stir in a little olive oil to keep from sticking
+    - Stir in a little olive oil to keep from sticking
 
--   Heat olive oil in pot
+- Heat olive oil in pot
 
--   Add onion and garlic, and cook for 5 minutes
+- Add onion and garlic, and cook for 5 minutes
 
--   Add sausage and brown
+- Add sausage and brown
 
--   Add spinach, beans, and broth
+- Add spinach, beans, and broth
 
--   Cook for 5 minutes
+- Cook for 5 minutes
 
--   Return pasta to pot and toss to combine
+- Return pasta to pot and toss to combine
 
--   Serves 6
+- Serves 6

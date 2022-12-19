@@ -1,25 +1,25 @@
--   1 rack of pork
+- 1 rack of pork
 
--   BBQ spice rub
+- BBQ spice rub
 
--   BBQ sauce
+- BBQ sauce
 
-**PREP**
+## PREP
 
--   Heat smoker to 225 F
+- Heat smoker to 225 F
 
-**DIRECTIONS**
+## DIRECTIONS
 
--   Smother spice rub all over rack
+- Smother spice rub all over rack
 
--   Place on grill and smoke for 4-5 hours until internal temp is 140 F
+- Place on grill and smoke for 4-5 hours until internal temp is 140 F
 
--   Apply BBQ sauce to top and cook for 5 minutes
+- Apply BBQ sauce to top and cook for 5 minutes
 
--   Flip and apply BBQ sauce
+- Flip and apply BBQ sauce
 
--   Cook until internal temp is 145 F
+- Cook until internal temp is 145 F
 
--   Remove and let rest for at least 10 minutes
+- Remove and let rest for at least 10 minutes
 
--   Slice between ribs to serve
+- Slice between ribs to serve

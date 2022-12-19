@@ -1,41 +1,41 @@
--   2 pints cherry tomatoes
+- 2 pints cherry tomatoes
 
--   16 oz. feta cheese
+- 16 oz. feta cheese
 
--   4 tbsp. EVOO
+- 4 tbsp. EVOO
 
--   2 tsp. garlic salt
+- 2 tsp. garlic salt
 
--   1 tsp. black pepper
+- 1 tsp. black pepper
 
--   ½ cup heavy cream or half & half
+- ½ cup heavy cream or half & half
 
--   ½ cup Parmesan cheese
+- ½ cup Parmesan cheese
 
--   1 tbsp. garlic
+- 1 tbsp. garlic
 
--   4 tbsp. fresh basil or 2 tbsp. dried basil
+- 4 tbsp. fresh basil or 2 tbsp. dried basil
 
--   16 oz. cooked pasta
+- 16 oz. cooked pasta
 
--   1 lb. chicken, cooked and shredded (optional)
+- 1 lb. chicken, cooked and shredded (optional)
 
-**PREP**
+## PREP
 
--   Heat oven to 350 F
+- Heat oven to 350 F
 
-**DIRECTIONS**
+## DIRECTIONS
 
--   Layer cherry tomatoes in casserole dish
+- Layer cherry tomatoes in casserole dish
 
--   Layer cheese on top
+- Layer cheese on top
 
--   Drizzle EVOO and sprinkle salt & pepper over everything
+- Drizzle EVOO and sprinkle salt & pepper over everything
 
--   Bake for 40 minutes
+- Bake for 40 minutes
 
--   Remove and mash everything together
+- Remove and mash everything together
 
--   Mix in cream, Parmesan, garlic, and basil
+- Mix in cream, Parmesan, garlic, and basil
 
--   Fold in pasta (and chicken) until combined
+- Fold in pasta (and chicken) until combined

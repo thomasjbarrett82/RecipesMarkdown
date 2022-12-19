@@ -1,13 +1,13 @@
--   1 can chicken gumbo soup
+- 1 can chicken gumbo soup
 
--   ¾ lb. Velveeta cheese, cut up
+- ¾ lb. Velveeta cheese, cut up
 
--   1 small can green chilies, drained & chopped
+- 1 small can green chilies, drained & chopped
 
-**DIRECTIONS**
+## DIRECTIONS
 
--   Mix all ingredients in a bowl
+- Mix all ingredients in a bowl
 
--   Microwave for 1 minute at a time, stirring in between, until melted
+- Microwave for 1 minute at a time, stirring in between, until melted
 
--   Serve with Doritos or tortilla chips
+- Serve with Doritos or tortilla chips

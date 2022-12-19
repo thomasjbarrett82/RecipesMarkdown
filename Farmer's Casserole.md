@@ -1,37 +1,37 @@
--   3 cups hash browns
+- 3 cups hash browns
 
--   1 cup Monterey Jack, shredded
+- 1 cup Monterey Jack, shredded
 
--   1 cup ham, cubed
+- 1 cup ham, cubed
 
--   ¼ cup green onion, diced
+- ¼ cup green onion, diced
 
--   4 eggs, beaten
+- 4 eggs, beaten
 
--   12 oz. can evaporated milk
+- 12 oz. can evaporated milk
 
--   ½ tsp. black pepper
+- ½ tsp. black pepper
 
--   1 tsp. salt
+- 1 tsp. salt
 
-**PREP**
+## PREP
 
--   The night prior, grease 9x13 baking dish
+- The night prior, grease 9x13 baking dish
 
--   Before cooking, heat oven to 350
+- Before cooking, heat oven to 350
 
-**DIRECTIONS**
+## DIRECTIONS
 
--   Spread hash browns evenly on bottom of dish
+- Spread hash browns evenly on bottom of dish
 
--   Sprinkle with cheese, ham, and onion
+- Sprinkle with cheese, ham, and onion
 
--   Combine milk, eggs, salt, and pepper in small bowl
+- Combine milk, eggs, salt, and pepper in small bowl
 
--   Pour over baking dish
+- Pour over baking dish
 
--   Refrigerate overnight
+- Refrigerate overnight
 
--   Bake for 40-50 minutes until set
+- Bake for 40-50 minutes until set
 
--   Let rest before serving
+- Let rest before serving

@@ -1,31 +1,31 @@
--   1 lb. Italian sausage
+- 1 lb. Italian sausage
 
--   2 cans diced tomatoes
+- 2 cans diced tomatoes
 
--   4 cups chicken broth
+- 4 cups chicken broth
 
--   8 oz. cream cheese
+- 8 oz. cream cheese
 
--   20 oz. cheese tortellini (2 pkgs of Rana)
+- 20 oz. cheese tortellini (2 pkgs of Rana)
 
--   3 cups fresh spinach
+- 3 cups fresh spinach
 
-**PREP**
+## PREP
 
--   Heat large pot or Dutch oven over med-high heat
+- Heat large pot or Dutch oven over med-high heat
 
-**DIRECTIONS**
+## DIRECTIONS
 
--   Crumble and brown sausage in pot
+- Crumble and brown sausage in pot
 
--   Add tomatoes and broth
+- Add tomatoes and broth
 
--   Heat until starting to boil
+- Heat until starting to boil
 
--   Stir in cream cheese until incorporated and smooth
+- Stir in cream cheese until incorporated and smooth
 
--   Add tortellini and spinach
+- Add tortellini and spinach
 
--   Turn to low and cover
+- Turn to low and cover
 
--   Cook for 20-30 minutes before serving
+- Cook for 20-30 minutes before serving

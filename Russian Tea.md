@@ -1,23 +1,23 @@
--   1 ½ cups white sugar
+- 1 ½ cups white sugar
 
--   2 cups Tang
+- 2 cups Tang
 
--   ½ cup unsweetened ice tea mix
+- ½ cup unsweetened ice tea mix
 
--   1 pkg. unsweetened lemonade mix
+- 1 pkg. unsweetened lemonade mix
 
--   1 tsp ground cinnamon
+- 1 tsp ground cinnamon
 
--   1 tsp. ground allspice
+- 1 tsp. ground allspice
 
--   ½ tsp. ground cloves
+- ½ tsp. ground cloves
 
-**PREP**
+## PREP
 
--   Mix all ingredients in airtight container
+- Mix all ingredients in airtight container
 
--   Can be stored for several months
+- Can be stored for several months
 
-**DIRECTIONS**
+## DIRECTIONS
 
--   Mix 3 tsp. of mix in 1 cup of boiling water
+- Mix 3 tsp. of mix in 1 cup of boiling water

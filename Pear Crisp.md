@@ -1,47 +1,47 @@
--   FILLING:
+- FILLING:
 
-    -   6 cups pears, peeled and sliced
+    - 6 cups pears, peeled and sliced
 
-    -   1 tsp. vanilla extract
+    - 1 tsp. vanilla extract
 
-    -   ½ tsp. nutmeg
+    - ½ tsp. nutmeg
 
-    -   ½ tsp. salt
+    - ½ tsp. salt
 
--   TOPPING:
+- TOPPING:
 
-    -   1 stick butter, softened
+    - 1 stick butter, softened
 
-    -   ½ cup A/P flour
+    - ½ cup A/P flour
 
-    -   ½ cup rolled oats
+    - ½ cup rolled oats
 
-    -   ½ cup sugar
+    - ½ cup sugar
 
-    -   ½ cup brown sugar
+    - ½ cup brown sugar
 
-    -   ½ cup pecans, finely chopped
+    - ½ cup pecans, finely chopped
 
-    -   ½ tsp. salt
+    - ½ tsp. salt
 
--   Optional vanilla ice cream & caramel sauce for serving
+- Optional vanilla ice cream & caramel sauce for serving
 
-**PREP**
+## PREP
 
--   Heat oven to 350 F
+- Heat oven to 350 F
 
--   Grease 8-inch square baking dish
+- Grease 8-inch square baking dish
 
-**DIRECTIONS**
+## DIRECTIONS
 
--   Toss filling ingredients in large bowl and transfer to pan
+- Toss filling ingredients in large bowl and transfer to pan
 
--   Mix topping ingredients with fingers/fork until crumbly
+- Mix topping ingredients with fingers/fork until crumbly
 
--   Spread evenly over filling
+- Spread evenly over filling
 
--   Sprinkle some more cinnamon over top
+- Sprinkle some more cinnamon over top
 
--   Bake for 45 minutes
+- Bake for 45 minutes
 
--   Let cool 5-10 minutes before serving
+- Let cool 5-10 minutes before serving

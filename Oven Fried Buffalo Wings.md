@@ -1,42 +1,42 @@
--   1 – 4 pounds chicken wings
+- 1 – 4 pounds chicken wings
 
--   1 tsp. baking powder (per pound)
+- 1 tsp. baking powder (per pound)
 
--   1 tsp. kosher salt (per pound)
+- 1 tsp. kosher salt (per pound)
 
--   2 tbsp. butter (per pound)
+- 2 tbsp. butter (per pound)
 
--   2 tbsp. Frank’s Red Hot (per pound)
+- 2 tbsp. Frank’s Red Hot (per pound)
 
--   Blue cheese dressing and celery
+- Blue cheese dressing and celery
 
-**PREP**
+## PREP
 
--   Line a baking sheet with foil and wire rack
+- Line a baking sheet with foil and wire rack
 
--   Dry wings with paper towels
+- Dry wings with paper towels
 
--   In a large bowl, toss wings with baking powder and salt
+- In a large bowl, toss wings with baking powder and salt
 
--   Spread on rack and place in fridge
+- Spread on rack and place in fridge
 
--   Rest, uncovered, for 8 – 24 hours
+- Rest, uncovered, for 8 – 24 hours
 
-**DIRECTIONS**
+## DIRECTIONS
 
--   Adjust oven rack to upper-middle position
+- Adjust oven rack to upper-middle position
 
--   Heat oven to 450° F
+- Heat oven to 450° F
 
--   Add wings and cook for 20 minutes
+- Add wings and cook for 20 minutes
 
--   Flip wings and continue to cook until crisp and golden brown (15 –
+- Flip wings and continue to cook until crisp and golden brown (15 –
     30 minutes longer)
 
--   Combine butter and hot sauce in small saucepan
+- Combine butter and hot sauce in small saucepan
 
--   Whisk until combined
+- Whisk until combined
 
--   Transfer wings to large bowl and toss thoroughly to coat
+- Transfer wings to large bowl and toss thoroughly to coat
 
--   Serve immediately with dressing and celery
+- Serve immediately with dressing and celery

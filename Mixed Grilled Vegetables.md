@@ -1,27 +1,27 @@
--   2 bell peppers, quartered
+- 2 bell peppers, quartered
 
--   1 red onion, quartered
+- 1 red onion, quartered
 
--   1 zucchini squash, roughly chopped
+- 1 zucchini squash, roughly chopped
 
--   1 large carrot, cut into ½” pieces
+- 1 large carrot, cut into ½” pieces
 
--   2 tbsp. EVOO
+- 2 tbsp. EVOO
 
--   1 tbsp. lemon juice
+- 1 tbsp. lemon juice
 
--   1 tsp. black pepper
+- 1 tsp. black pepper
 
--   1 tsp. kosher salt
+- 1 tsp. kosher salt
 
-**PREP**
+## PREP
 
--   Heat an outdoor or indoor grill
+- Heat an outdoor or indoor grill
 
-**DIRECTIONS**
+## DIRECTIONS
 
--   Combine all ingredients in a bowl
+- Combine all ingredients in a bowl
 
--   Toss to combine
+- Toss to combine
 
--   Grill for 6-8 minutes until tender-crisp
+- Grill for 6-8 minutes until tender-crisp

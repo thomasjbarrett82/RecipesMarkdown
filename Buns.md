@@ -1,33 +1,33 @@
--   1 cup water
+- 1 cup water
 
--   1 tbsp. butter
+- 1 tbsp. butter
 
--   1 egg
+- 1 egg
 
--   425 g white bread flour + ½ cup flour
+- 425 g white bread flour + ½ cup flour
 
--   60 g sugar
+- 60 g sugar
 
--   ¼ tsp kosher salt
+- ¼ tsp kosher salt
 
--   ¼ oz. active yeast
+- ¼ oz. active yeast
 
-**PREP**
+## PREP
 
--   Place ingredients in bread maker on dough cycle
+- Place ingredients in bread maker on dough cycle
 
--   Grease a large baking sheet
+- Grease a large baking sheet
 
-**DIRECTIONS**
+## DIRECTIONS
 
--   After dough cycle completes, move to bowl with ½ cup flour
+- After dough cycle completes, move to bowl with ½ cup flour
 
--   Remove “pinches” of dough and place on baking sheet
+- Remove “pinches” of dough and place on baking sheet
 
--   Cover & place in warm place until doubled in size
+- Cover & place in warm place until doubled in size
 
--   Heat oven to 375°F
+- Heat oven to 375°F
 
--   Bake for 12-15 minutes until golden
+- Bake for 12-15 minutes until golden
 
--   Brush butter over tops while still warm
+- Brush butter over tops while still warm
