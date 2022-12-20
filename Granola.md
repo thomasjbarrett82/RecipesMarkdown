@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 4 cups old-fashioned oats
 
 - 1 cup sliced almonds
@@ -16,11 +20,11 @@
 
 - 1 tsp. vanilla extract
 
-## PREP
+## Prep
 
 - Heat oven to 250° F
 
-## DIRECTIONS
+## Directions
 
 - Mix dry ingredients in large bowl
 

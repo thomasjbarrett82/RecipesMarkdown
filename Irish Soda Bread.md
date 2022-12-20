@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 565 g. A/P flour + 2-3 tbsp. for dusting
 
 - 1.5 tsp. baking soda
@@ -18,11 +22,11 @@
 
   - Herbs
 
-## PREP
+## Prep
 
 - Heat oven to 450 F
 
-## DIRECTIONS
+## Directions
 
 - Line tray with baking paper, or rub oil on inside of cast iron pan
 

@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 4 oz. bacon, chopped
 
 - 12 oz. ham, diced
@@ -24,11 +28,11 @@
 
 - Kosher salt & black pepper
 
-## PREP
+## Prep
 
 - Heat Dutch oven over med-high heat
 
-## DIRECTIONS
+## Directions
 
 - Brown the bacon, remove and set aside
 

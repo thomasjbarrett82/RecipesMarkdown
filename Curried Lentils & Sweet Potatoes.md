@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 1 tbsp olive oil
 
 - 1 onion, peeled & diced
@@ -22,13 +26,13 @@
 
 - Sour cream (optional)
 
-## PREP
+## Prep
 
 - Sort lentils, discard debris, and rinse & drain
 
 - Heat large, heavy pan/pot over medium heat
 
-## DIRECTIONS
+## Directions
 
 - Add oil to pan
 

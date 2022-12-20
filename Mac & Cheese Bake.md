@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 1 cup uncooked elbow macaroni
 
 - 2 cups corn flakes, crushed
@@ -12,13 +16,13 @@
 
 - 1 ¼ cup shredded Cheddar
 
-## PREP
+## Prep
 
 - Cook macaroni according to directions
 
 - Heat oven to 350° F
 
-## DIRECTIONS
+## Directions
 
 - Mix corn flakes with 2 tbsp butter for topping, set aside
 

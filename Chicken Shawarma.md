@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - Chicken Shawarma
 
   - ½ cup EVOO
@@ -56,7 +60,7 @@
 
 - Pita wraps
 
-## PREP
+## Prep
 
 - Combine Greek Salad ingredients in bowl and set in fridge for
     serving
@@ -65,7 +69,7 @@
 
 - Let Shawarma marinate in fridge for at least 1 hour
 
-## DIRECTIONS
+## Directions
 
 - Cook Shawarma in Instant Pot for 10 minutes and let release
     naturally

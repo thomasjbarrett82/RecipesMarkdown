@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 1 cup butter
 
 - 1 cup sugar
@@ -10,13 +14,13 @@
 
 - 3 cups flour
 
-## PREP
+## Prep
 
 - Heat oven to 375 F
 
 - Line baking pan with parchment (optional)
 
-## DIRECTIONS
+## Directions
 
 - In large bowl, cream sugar and butter
 

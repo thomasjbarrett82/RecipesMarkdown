@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - ½# bacon, sliced
 
 - 32 oz frozen Brussels sprouts, thawed
@@ -14,11 +18,11 @@
 
 - ¼ tsp pepper
 
-## PREP
+## Prep
 
 - Heat large, heavy pan over medium
 
-## DIRECTIONS
+## Directions
 
 - Cook bacon in pan, then remove with slotted spoon and set aside
 

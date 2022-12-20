@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 2 ¼ lbs Roma tomatoes, halved & deseeded
 
 - 3 bell peppers, quartered & deseeded
@@ -16,11 +20,11 @@
 
 - Optional: heavy cream
 
-## PREP
+## Prep
 
 - Heat oven to 450°F
 
-## DIRECTIONS
+## Directions
 
 - Arrange tomatoes (cut-side up), peppers, onions, garlic on baking
     sheet

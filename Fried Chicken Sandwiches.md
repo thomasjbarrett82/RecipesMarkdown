@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 1 jar sliced dill pickles
 
 - 4 boneless skinless chicken thighs, flattened
@@ -14,7 +18,7 @@
 
 - 4 soft potato rolls or hamburger buns (toasted)
 
-## PREP
+## Prep
 
 - Pour ¾ cup pickle juice into a large plastic baggie
 
@@ -24,7 +28,7 @@
 
 - Heat oil to 425 degrees F before cooking
 
-## DIRECTIONS
+## Directions
 
 - Remove chicken from bag and discard juice, pat dry with paper towels
 

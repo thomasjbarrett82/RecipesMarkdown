@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 1 loaf unsliced bread
 
 - Custard:
@@ -22,7 +26,7 @@
 
 - 3 tbsp brown sugar
 
-## DIRECTIONS
+## Directions
 
 - *Note: can be prepped the night before*
 

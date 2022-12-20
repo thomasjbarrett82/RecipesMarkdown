@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 15-18-pound bone-in ham
 
 - 2 cans Dr. Pepper
@@ -16,11 +20,11 @@
 
 - 1 tsp. cloves
 
-## PREP
+## Prep
 
 - Heat oven to 300° F
 
-## DIRECTIONS
+## Directions
 
 - Place ham in large roasting pan and tent with foil
 

@@ -1,3 +1,7 @@
+# Cheeseball
+
+## Ingredients
+
 - 2 packages dried beef
 
 - 2 8 oz cream cheese
@@ -8,7 +12,7 @@
 
 - 1 tsp Accent
 
-## DIRECTIONS
+## Directions
 
 - Chop dried beef, then split in half
 

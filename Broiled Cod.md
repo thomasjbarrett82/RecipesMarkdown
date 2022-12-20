@@ -1,3 +1,7 @@
+# Broiled Cod
+
+## Ingredients
+
 - 4 fillets cod (or other white fish)
 
 - EVOO
@@ -14,11 +18,11 @@
 
 - 2 tsp. fresh thyme
 
-## PREP
+## Prep
 
 - Preheat the broiler
 
-## DIRECTIONS
+## Directions
 
 - Lay the fillets on a pan and brush with EVOO on both sides
 

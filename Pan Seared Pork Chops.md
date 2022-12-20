@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 2 bone-in pork rib chops, 1.5 inches thick
 
 - 2 T. kosher salt
@@ -14,13 +18,13 @@
 
 - 8 sprigs fresh thyme
 
-## PREP
+## Prep
 
 - Marinate chops 8-24 hours ahead of cooking
 
 - Preheat oven to 250 degrees F
 
-## DIRECTIONS
+## Directions
 
 - Combine salt and sugar in a small bowl
 

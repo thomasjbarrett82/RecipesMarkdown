@@ -1,3 +1,7 @@
+# Chex Party Mix
+
+## Ingredients
+
 - 3 cups Corn Chex
 
 - 3 cups Rice Chex
@@ -20,7 +24,7 @@
 
 - ½ t. onion powder
 
-## DIRECTIONS
+## Directions
 
 - Mix all ingredients together in a large microwavable bowl
 

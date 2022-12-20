@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 4 cans refrigerated biscuits
 
 - (optional) 1 cup chopped pecans
@@ -8,13 +12,13 @@
 
 - ¾ cup butter
 
-## PREP
+## Prep
 
 - Heat oven to 350 F
 
 - Grease a Bundt pan
 
-## DIRECTIONS
+## Directions
 
 - Cut biscuits into quarters
 

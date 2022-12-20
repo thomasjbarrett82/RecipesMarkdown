@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 2 lbs. ground beef
 
 - 1 15 oz. can diced tomatoes with onions & peppers
@@ -10,7 +14,7 @@
 
 - 2 pkgs. Chili seasoning
 
-## DIRECTIONS
+## Directions
 
 - Sauté the ground beef in an instant pot
 

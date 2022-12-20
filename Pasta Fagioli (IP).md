@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 2/3 cups dried northern or navy beans
 
 - 2/3 cups dried kidney beans
@@ -30,11 +34,11 @@
 
 - ¼ tsp. crushed red pepper flakes
 
-## PREP
+## Prep
 
 - Soak beans in cold water for 6-8 hours
 
-## DIRECTIONS
+## Directions
 
 - Cook beans in IP for 30 minutes, remove and set aside
 

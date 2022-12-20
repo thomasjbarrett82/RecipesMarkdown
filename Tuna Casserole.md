@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 12 oz. egg noodles
 
 - 1 small yellow onion, minced
@@ -24,7 +28,7 @@
 
 - 1 cup crushed potato chips
 
-## PREP
+## Prep
 
 - Heat oven to 350 F
 
@@ -32,7 +36,7 @@
 
 - Prepare noodles to al dente
 
-## DIRECTIONS
+## Directions
 
 - Melt butter in skillet
 

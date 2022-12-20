@@ -1,3 +1,7 @@
+# Beef Stir Fry
+
+## Ingredients
+
 - 1 lb. beef, sliced 1/8” thick
 
 - Marinade:
@@ -20,11 +24,11 @@
 
 - Cooked rice
 
-## PREP
+## Prep
 
 - Heat large heavy wok or skillet over high heat
 
-## DIRECTIONS
+## Directions
 
 - Combine marinade ingredients with beef, set aside
 

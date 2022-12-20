@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 1 cup chicken stock
 
 - 4 packets unflavored gelatin
@@ -38,7 +42,7 @@
 
 - ¼ cup fresh basil, minced
 
-## DIRECTIONS
+## Directions
 
 - Bloom the gelatin in the stock
 

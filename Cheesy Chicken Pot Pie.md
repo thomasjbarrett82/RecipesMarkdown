@@ -1,3 +1,7 @@
+# Cheesy Chicken Pot Pie
+
+## Ingredients
+
 - 1 tbsp oil
 
 - ½ cup chopped onion
@@ -20,13 +24,13 @@
 
 - 1 tube pre-made crescent rolls
 
-## PREP
+## Prep
 
 - Heat large pan over medium heat
 
 - Heat oven to 375° F
 
-## DIRECTIONS
+## Directions
 
 - Add oil, onion, and celery to pan
 

@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 2 cans creamed corn
 
 - ¾ can milk
@@ -14,13 +18,13 @@
 
 - 1 cup corn flakes, crushed
 
-## PREP
+## Prep
 
 - Heat oven to 350 F
 
 - Lightly grease a casserole dish
 
-## DIRECTIONS
+## Directions
 
 - Mix corn, milk, butter, eggs, s&p, sugar, & crackers in casserole
     dish

@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 8 oz. Swiss chard (1/2 bunch)
 
 - 1 onion, thinly sliced
@@ -16,13 +20,13 @@
 
 - EVOO
 
-## PREP
+## Prep
 
 - Heat 1 tsp. EVOO in large skillet over med-high heat
 
 - Trim the stems from the chard and slice leaves into ribbons
 
-## DIRECTIONS
+## Directions
 
 - Cook onions with ½ tsp. salt until soft and golden brown
 

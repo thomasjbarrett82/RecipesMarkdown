@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 1 lb. ground Italian sausage
 
 - Turkey gizzard & heart, minced
@@ -30,13 +34,13 @@
 
 - Add 1 large leek, minced
 
-## PREP
+## Prep
 
 - Place large pan over med-high heat
 
 - Heat oven to 350° F
 
-## DIRECTIONS
+## Directions
 
 - Brown sausage & turkey in pan
 

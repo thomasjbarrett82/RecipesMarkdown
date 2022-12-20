@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 15-20 medium mushrooms
 
 - 1 tbsp. butter
@@ -16,7 +20,7 @@
 
 - ½ tsp. black pepper
 
-## PREP
+## Prep
 
 - Heat oven to 350 F
 
@@ -24,7 +28,7 @@
 
 - Arrange the tops on a baking sheet
 
-## DIRECTIONS
+## Directions
 
 - Melt the butter in a large pan
 

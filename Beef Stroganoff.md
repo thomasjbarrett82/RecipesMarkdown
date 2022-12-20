@@ -1,3 +1,7 @@
+# Beef Stroganoff
+
+## Ingredients
+
 - 1 lb. egg noodles
 
 - 1 tbsp. + 1 tbsp. EVOO
@@ -24,7 +28,7 @@
 
 - Salt & pepper, to taste
 
-## PREP
+## Prep
 
 - Start a large pot of water to boil and cook the noodles
 
@@ -32,7 +36,7 @@
 
 - Heat 1 tbsp. EVOO in a large heavy skillet over high heat
 
-## DIRECTIONS
+## Directions
 
 - Cook steaks in the skillet until well-browned and medium-rare
 

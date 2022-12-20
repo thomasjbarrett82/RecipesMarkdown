@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 1# ground sausage
 
 - 2 ½ cups milk
@@ -12,11 +16,11 @@
 
 - ½ tsp salt
 
-## PREP
+## Prep
 
 - Heat saucepot over med-high
 
-## DIRECTIONS
+## Directions
 
 - Brown and crumble sausage
 

@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 5 oz. canned tuna, drained well
 
 - ½ cup mayo
@@ -12,11 +16,11 @@
 
 - 4 slices American or Cheddar cheese
 
-## PREP
+## Prep
 
 - Heat large heavy pan over medium-low heat
 
-## DIRECTIONS
+## Directions
 
 - Combine tuna, mayo, & panko in small mixing bowl
 

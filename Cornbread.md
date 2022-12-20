@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - ½ cup brown sugar
 
 - 2 cups cornmeal
@@ -24,11 +28,11 @@
 
   - 1 cup sweet corn kernels
 
-## PREP
+## Prep
 
 - Heat oven to 350° F
 
-## DIRECTIONS
+## Directions
 
 - Mix the dry ingredients in large bowl
 

@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 12 eggs
 
 - 2 cups milk
@@ -16,11 +20,11 @@
 
 - 1 cup Cheddar, shredded
 
-## PREP
+## Prep
 
 - Heat oven to 350 F
 
-## DIRECTIONS
+## Directions
 
 - Combine all ingredients in greased casserole dish
 

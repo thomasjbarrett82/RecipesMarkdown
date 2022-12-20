@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - ½ cup + 6 T. butter, softened
 
 - ¾ cup brown sugar
@@ -20,11 +24,11 @@
 
 - 1 cup raisins
 
-## PREP
+## Prep
 
 - Preheat oven to 350 degrees F
 
-## DIRECTIONS
+## Directions
 
 - Beat butter and sugars in large bowl with a mixer until creamy
 

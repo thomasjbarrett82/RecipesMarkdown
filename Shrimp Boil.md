@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 1 head garlic, unpeeled
 
 - 4 bay leaves
@@ -28,11 +32,11 @@
 
   - Can also use whole crabs or crawfish
 
-## PREP
+## Prep
 
 - Fill a very large pot 1/3 full of water over high heat
 
-## DIRECTIONS
+## Directions
 
 - Add garlic, bay leaves, seasonings, oranges, lemons, and potatoes to
     pot

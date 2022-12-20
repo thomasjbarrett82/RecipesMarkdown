@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 2# hash browns, thawed
 
 - 1 can cream of mushroom soup
@@ -20,11 +24,11 @@
 
 - 1 cup corn flakes, crushed
 
-## PREP
+## Prep
 
 - Heat oven to 350° F
 
-## DIRECTIONS
+## Directions
 
 - Pour ¼ cup butter into 9x13” baking dish and spread around
 

@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 1 cup peanut butter
 
 - 2 cups powdered sugar
@@ -6,11 +10,11 @@
 
 - 2 ½ lbs. chocolate almond bark
 
-## PREP
+## Prep
 
 - Line cupcake pan or mini candy cups
 
-## DIRECTIONS
+## Directions
 
 - Mix peanut butter, sugar, and butter
 

@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 3 lbs. sweet potatoes, chopped into ½ cubes
 
 - 5 T. + 1 T. EVOO
@@ -8,11 +12,11 @@
 
 - 1 T. honey
 
-## PREP
+## Prep
 
 - Preheat oven to 400 degrees F
 
-## DIRECTIONS
+## Directions
 
 - Place sweet potatoes in large pot and cover with water
 

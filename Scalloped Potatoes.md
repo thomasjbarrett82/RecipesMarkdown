@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 2 tbsp butter, melted
 
 - 2 tbsp flour
@@ -8,11 +12,11 @@
 
 - 6 large russet potatoes, sliced thin
 
-## PREP
+## Prep
 
 - Heat oven to 350° F
 
-## DIRECTIONS
+## Directions
 
 - Mix butter, flour, milk, and soup for the sauce
 

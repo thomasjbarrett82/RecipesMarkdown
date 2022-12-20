@@ -1,3 +1,7 @@
+# Cabbage Soup
+
+## Ingredients
+
 - 1 T. EVOO or lard
 
 - 4 cloves garlic, minced
@@ -30,11 +34,11 @@
 
 - Salt and pepper, to taste
 
-## PREP
+## Prep
 
 - Heat large pot or Dutch oven
 
-## DIRECTIONS
+## Directions
 
 - Sauté garlic & onion with oil
 

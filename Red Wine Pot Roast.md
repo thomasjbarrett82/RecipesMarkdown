@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - EVOO
 
 - 3 lb. beef chuck roast
@@ -26,7 +30,7 @@
 
 - Salt & pepper
 
-## PREP
+## Prep
 
 - Trim excess fat from roast
 
@@ -34,7 +38,7 @@
 
 - Heat EVOO in large Dutch oven on medium heat
 
-## DIRECTIONS
+## Directions
 
 - Brown the roast
 

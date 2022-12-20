@@ -1,6 +1,6 @@
-# 
+# Apple Pecan Caramel Pie
 
-## INGREDIENTS
+## Ingredients
 
 - 1 serving pie dough
 
@@ -46,7 +46,7 @@
 
 - 2 cups whole pecans, toasted
 
-## DIRECTIONS
+## Directions
 
 - Par cook the crust in a 9 inch pie plate
 
@@ -60,15 +60,13 @@
 
 - Cool and scrape into pie crust
 
-- Meanwhile, combine all caramel ingredients in a heavy saucepan over
-    medium heat
+- Meanwhile, combine all caramel ingredients in a heavy saucepan over medium heat
 
 - Stop stirring and cook until thermometer reaches 236 F (~5 minutes)
 
 - Remove from heat and let cool to at least 190 F
 
-  - Optional: crush and mix pecans into caramel instead of using for
-        top
+  - Optional: crush and mix pecans into caramel instead of using for top
 
 - Spoon the caramel over the apple mixture
 

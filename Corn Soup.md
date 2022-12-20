@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 1 tbsp. butter
 
 - 1 small onion, minced
@@ -18,7 +22,7 @@
 
 - 4 cups vegetable broth
 
-## DIRECTIONS
+## Directions
 
 - Melt butter in Dutch oven over medium heat
 

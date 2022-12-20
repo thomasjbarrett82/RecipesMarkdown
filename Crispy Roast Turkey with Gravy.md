@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 3 large onions, chopped
 
 - 3 large carrots, peeled & chopped
@@ -22,13 +26,13 @@
 
 - 4 T. flour
 
-## PREP
+## Prep
 
 - Preheat oven to 450 degrees F
 
 - Line a rimmed baking sheet with aluminum foil
 
-## DIRECTIONS
+## Directions
 
 - Spread 2/3 of vegetables and thyme across the baking sheet
 

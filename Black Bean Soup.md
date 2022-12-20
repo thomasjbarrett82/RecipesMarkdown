@@ -1,3 +1,7 @@
+# Black Bean Soup
+
+## Ingredients
+
 - 2 cups roasted corn
 
 - 2 cups butternut squash, cubed
@@ -32,11 +36,11 @@
 
 - Garnish: diced bacon & hot sauce
 
-## PREP
+## Prep
 
 - Heat oil in stock pot over medium high heat.
 
-## DIRECTIONS
+## Directions
 
 - Add onions & celery to pot and sauté until translucent.
 

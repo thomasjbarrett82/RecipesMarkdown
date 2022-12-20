@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 1 lb. Italian sausage
 
 - 2 cans diced tomatoes
@@ -10,11 +14,11 @@
 
 - 3 cups fresh spinach
 
-## PREP
+## Prep
 
 - Heat large pot or Dutch oven over med-high heat
 
-## DIRECTIONS
+## Directions
 
 - Crumble and brown sausage in pot
 

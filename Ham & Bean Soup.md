@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 2-3# ham, shredded or diced
 
 - 1 sweet onion, diced
@@ -14,12 +18,12 @@
 
 - 2 cloves garlic, minced
 
-## PREP
+## Prep
 
 - Cover beans with 2 inches of water, let sit overnight, drain and
     rinse
 
-## DIRECTIONS
+## Directions
 
 - Add all ingredients into crockpot
 

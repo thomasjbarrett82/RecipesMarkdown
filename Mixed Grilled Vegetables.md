@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 2 bell peppers, quartered
 
 - 1 red onion, quartered
@@ -14,11 +18,11 @@
 
 - 1 tsp. kosher salt
 
-## PREP
+## Prep
 
 - Heat an outdoor or indoor grill
 
-## DIRECTIONS
+## Directions
 
 - Combine all ingredients in a bowl
 

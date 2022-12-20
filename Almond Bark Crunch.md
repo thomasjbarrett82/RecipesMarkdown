@@ -1,6 +1,6 @@
 # Almond Bark Crunch
 
-## INGREDIENTS
+## Ingredients
 
 - 1 lb. white almond bark
 
@@ -10,11 +10,11 @@
 
 - 4 cups Golden Grahams cereal
 
-## PREP
+## Prep
 
 - Heat up a double boiler over stove
 
-## DIRECTIONS
+## Directions
 
 - Melt bark in boiler
 

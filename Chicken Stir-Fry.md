@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 2 tbsp oil
 
 - 2# chicken breasts
@@ -16,11 +20,11 @@
 
 - 1 tbsp cornstarch
 
-## PREP
+## Prep
 
 - Heat oil in large skillet over med-high heat
 
-## DIRECTIONS
+## Directions
 
 - Cook chicken in skillet until no longer pink, about 5 minutes each
     side

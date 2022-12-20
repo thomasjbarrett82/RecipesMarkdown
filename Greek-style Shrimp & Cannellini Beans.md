@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 1 lb shrimp, peeled, deveined, & detailed
 
 - 1 can cannellini or northern beans, rinsed & drained
@@ -20,11 +24,11 @@
 
 - Garnish: crumbled feta cheese
 
-## PREP
+## Prep
 
 - Heat oven to 500°F
 
-## DIRECTIONS
+## Directions
 
 - Lay out 4 large pieces of aluminum foil
 

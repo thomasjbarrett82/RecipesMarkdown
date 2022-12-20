@@ -1,6 +1,6 @@
 # Apple Crisp
 
-## INGREDIENTS
+## Ingredients
 
 - 6 large apples, peeled and sliced
 
@@ -30,13 +30,13 @@
 
 - Vanilla ice cream and/or caramel sauce
 
-## PREP
+## Prep
 
 - Heat oven to 375 F
 
 - Grease 8x8 or 11x7 (2 quarts) casserole dish
 
-## DIRECTIONS
+## Directions
 
 - Combine apple slices, sugar, cornstarch, salt, & bourbon in dish
 

@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 1 cup smooth peanut butter
 
 - 1 cup brown sugar
@@ -8,11 +12,11 @@
 
 - 1 cup chocolate chips
 
-## PREP
+## Prep
 
 - Heat saucepan over medium
 
-## DIRECTIONS
+## Directions
 
 - Melt together peanut butter, sugar, and butter
 

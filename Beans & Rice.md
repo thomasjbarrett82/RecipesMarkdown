@@ -1,6 +1,6 @@
-# 
+# Beans & Rice
 
-## INGREDIENTS
+## Ingredients
 
 - 1 lb. dried beans
 
@@ -20,7 +20,7 @@
 
 - Salt & pepper, hot sauce to taste
 
-## DIRECTIONS
+## Directions
 
 - Place beans and 2 cups broth in pressure cooker
 

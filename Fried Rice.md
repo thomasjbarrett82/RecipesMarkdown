@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 2 cups cooked white rice (fully cooled)
 
 - 2 tbsp. vegetable oil
@@ -18,7 +22,7 @@
 
 - 4 ounces frozen peas
 
-## DIRECTIONS
+## Directions
 
 - Break up rice into individual grains
 

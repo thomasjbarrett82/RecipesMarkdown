@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 4 chicken quarters, scored to increase surface area
 
 - Brine (optional):
@@ -28,13 +32,13 @@
 
   - 2 tbsp. EVOO
 
-## PREP
+## Prep
 
 - Brine chicken for 5-6 hours (optional)
 
 - Marinate chicken for 2-3 hours
 
-## DIRECTIONS
+## Directions
 
 - Cook in air fryer/roaster @ 400 F for 15 minutes
 

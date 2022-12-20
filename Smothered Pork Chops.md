@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 3 tbsp. EVOO
 
 - ¾ cup flour
@@ -26,13 +30,13 @@
 
 - 1-2 cups chicken broth
 
-## PREP
+## Prep
 
 - Heat EVOO in large skillet over med-high heat
 
 - Mix flour and spices in large plastic baggie
 
-## DIRECTIONS
+## Directions
 
 - Dredge chops in flour mixture by tossing in the baggie
 

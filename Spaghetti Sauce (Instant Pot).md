@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 1 lb. lean ground beef
 
 - 4 cloves garlic, minced
@@ -30,7 +34,7 @@
 
 - 1 4 oz. can tomato paste
 
-## DIRECTIONS
+## Directions
 
 - Sauté the ground beef
 

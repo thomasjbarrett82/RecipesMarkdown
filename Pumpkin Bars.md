@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - Wet:
 
   - 4 eggs
@@ -36,7 +40,7 @@
 
   - 2 6 oz. cream cheese packages, softened
 
-## DIRECTIONS
+## Directions
 
 - Bars:
 

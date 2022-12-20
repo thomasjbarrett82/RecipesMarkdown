@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 8 oz. sour cream
 
 - 8 oz. cream cheese, softened
@@ -12,7 +16,7 @@
 
 - ½ cup walnuts, chopped
 
-## DIRECTIONS
+## Directions
 
 - Add the cream cheese, sour cream, sugar, and vanilla to a large
     mixing bowl

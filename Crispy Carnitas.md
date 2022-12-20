@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 4-5-pound lean boneless pork roast, trimmed fat, chunked
 
 - Salt & pepper
@@ -20,7 +24,7 @@
 
 - ½ tsp. black pepper
 
-## DIRECTIONS
+## Directions
 
 - Season the pork roast with salt & pepper, set aside
 

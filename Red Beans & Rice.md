@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 1 lb. dry red beans
 
 - 1 T. lard or vegetable oil
@@ -32,14 +36,14 @@
 
 - 2 cups uncooked rice, prepared separately
 
-## PREP
+## Prep
 
 - Cover beans with 2x water and let sit overnight, drain and rinse
     before cooking
 
 - Heat large Dutch oven over med-high heat
 
-## DIRECTIONS
+## Directions
 
 - Brown sausage in Dutch oven with the lard
 

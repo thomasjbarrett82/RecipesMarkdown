@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 1 tbsp. EVOO
 
 - 1 tbsp. butter
@@ -12,11 +16,11 @@
 
 - Salt & pepper, to taste
 
-## PREP
+## Prep
 
 - Heat medium saucepan over med-low heat
 
-## DIRECTIONS
+## Directions
 
 - Melt EVOO and butter
 

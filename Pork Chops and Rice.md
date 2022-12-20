@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 1-2 lbs. pork chops (not thick cut)
 
 - Salt & pepper
@@ -12,11 +16,11 @@
 
 - 1 can French-cut green beans
 
-## PREP
+## Prep
 
 - Set Instant Pot to sauté to pre-heat
 
-## DIRECTIONS
+## Directions
 
 - Season the chops with salt and pepper
 

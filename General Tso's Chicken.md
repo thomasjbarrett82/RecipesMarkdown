@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 ### MARINADE
 
 - 1 egg white
@@ -51,7 +55,7 @@
 - 8 small dried red Chinese or Arbol chilies (or ¼ t. dried red pepper
     flakes)
 
-## DIRECTIONS
+## Directions
 
 - Whisk marinade ingredients together, set aside half
 

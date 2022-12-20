@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 2 - 28 oz. cans peeled whole tomatoes
 
 - 3 tbsp. brown sugar
@@ -16,11 +20,11 @@
 
 - Salt & pepper
 
-## PREP
+## Prep
 
 - Heat oven to 450 degrees F
 
-## DIRECTIONS
+## Directions
 
 - Line baking sheet with foil and spray
 

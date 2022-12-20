@@ -1,3 +1,7 @@
+# Beef & Cabbage Stew
+
+## Ingredients
+
 - 2 lbs. beef stew meat, cubed
 
 - 1 T. vegetable oil
@@ -28,11 +32,11 @@
 
 - 1 T. Worcestershire sauce
 
-## PREP
+## Prep
 
 - Heat pressure cooker to sauté
 
-## DIRECTIONS
+## Directions
 
 - Heat oil in pressure cooker and brown beef on all sides
 

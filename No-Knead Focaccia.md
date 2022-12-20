@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 500 g. bread flour
 
 - 15 g. kosher salt
@@ -12,7 +16,7 @@
 
 - 2 T. fresh rosemary, chopped
 
-## PREP
+## Prep
 
 - Prepare dough 12-24 hours ahead of cook time
 
@@ -20,7 +24,7 @@
 
 - Preheat oven to 450 degrees F
 
-## DIRECTIONS
+## Directions
 
 - Combine flour, salt, yeast, and water in large bowl
 

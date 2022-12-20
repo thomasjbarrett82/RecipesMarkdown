@@ -1,3 +1,7 @@
+# Blueberry Muffins
+
+## Ingredients
+
 - 1 ¼ cups whole wheat flour
 
 - ¼ tsp. salt
@@ -22,13 +26,13 @@
 
 - 1 cup blueberries
 
-## PREP
+## Prep
 
 - Fill a 12-cup muffin tin with liners
 
 - Heat oven to 400° F
 
-## DIRECTIONS
+## Directions
 
 - Stir together flour, salt, baking powder, cinnamon, and nutmeg
 

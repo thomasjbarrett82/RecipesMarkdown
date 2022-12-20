@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - FILLING:
 
   - 6 cups pears, peeled and sliced
@@ -26,13 +30,13 @@
 
 - Optional vanilla ice cream & caramel sauce for serving
 
-## PREP
+## Prep
 
 - Heat oven to 350 F
 
 - Grease 8-inch square baking dish
 
-## DIRECTIONS
+## Directions
 
 - Toss filling ingredients in large bowl and transfer to pan
 

@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 1# large shrimp, peeled & deveined
 
 - 1 tsp kosher salt
@@ -20,11 +24,11 @@
 
 - 3 tbsp fresh basil, chopped
 
-## PREP
+## Prep
 
 - Heat 3 tbsp olive oil in large heavy skillet over med-high
 
-## DIRECTIONS
+## Directions
 
 - Toss shrimp in bowl with salt and pepper flakes
 

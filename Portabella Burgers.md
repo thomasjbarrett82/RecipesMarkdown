@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 4 large portabellas
 
 - 1 cup olive oil
@@ -18,13 +22,13 @@
 
 - 4 hamburger buns
 
-## PREP
+## Prep
 
 - Marinate mushrooms at least 2 hours before cooking
 
 - Heat grill to med-high
 
-## DIRECTIONS
+## Directions
 
 - Mix oil, balsamic, garlic, & jalapeño in bag
 

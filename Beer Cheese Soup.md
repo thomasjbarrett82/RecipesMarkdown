@@ -1,3 +1,7 @@
+# Beer Cheese Soup
+
+## Ingredients
+
 - ½ cup butter
 
 - ½ cup flour
@@ -20,11 +24,11 @@
 
 - 16 oz shredded Cheddar
 
-## PREP
+## Prep
 
 - Place large, heavy pan over med-high heat
 
-## DIRECTIONS
+## Directions
 
 - Melt butter in pan and add flour
 
@@ -36,8 +40,7 @@
 
 - Cook until thickened
 
-- Slowly add cheese by small handfuls, waiting until melted to add
-    more
+- Slowly add cheese by small handfuls, waiting until melted to add more
 
 - Do not boil
 

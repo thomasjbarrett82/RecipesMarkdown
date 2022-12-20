@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 16 oz. sweet potatoes, peeled and diced
 
 - 1 vanilla bean, split & scraped (seeds reserved for whipped cream
@@ -27,12 +31,12 @@
 
 - Brown Sugar Whipped Cream
 
-## PREP
+## Prep
 
 - Preheat oven to 350 degrees F and put the rack on the low-middle
     position
 
-## DIRECTIONS
+## Directions
 
 - In a 3 quart saucier, combine potatoes, vanilla pod, cinnamon
     sticks, whole nutmeg, milk, cream, and sugar (measure the weight of

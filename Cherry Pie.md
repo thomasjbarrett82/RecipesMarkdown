@@ -1,3 +1,7 @@
+# Cherry Pie
+
+## Ingredients
+
 - 28 ounces pitted cherries (fresh or frozen)
 
 - 2 tbsp. lemon juice
@@ -8,13 +12,13 @@
 
 - 1/3 cup tapioca starch
 
-## PREP
+## Prep
 
 - Prep the pie dough for a 2-crust pie
 
 - Pre-heat oven to 400° F
 
-## DIRECTIONS
+## Directions
 
 - Whisk the sugar, salt, and starch together
 

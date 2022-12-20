@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 2 cups uncooked rice
 
 - 1 pound ground beef or sausage (optional)
@@ -24,13 +28,13 @@
 
 - 1 cup shredded Cheddar, Velveeta, or Pepperjack cheese
 
-## PREP
+## Prep
 
 - Cook rice according to directions
 
 - Heat large skillet or Dutch oven over medium heat
 
-## DIRECTIONS
+## Directions
 
 - Brown the meat with the onions
 

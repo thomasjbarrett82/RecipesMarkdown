@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 1 – 4 pounds chicken wings
 
 - 1 tsp. baking powder (per pound)
@@ -10,7 +14,7 @@
 
 - Blue cheese dressing and celery
 
-## PREP
+## Prep
 
 - Line a baking sheet with foil and wire rack
 
@@ -22,7 +26,7 @@
 
 - Rest, uncovered, for 8 – 24 hours
 
-## DIRECTIONS
+## Directions
 
 - Adjust oven rack to upper-middle position
 

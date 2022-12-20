@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 1 can garbanzo beans, drained and rinsed
 
 - 2 tbsp tahini OR sunflower butter
@@ -14,7 +18,7 @@
 
 - ¼ cup olive oil
 
-## DIRECTIONS
+## Directions
 
 - Place all ingredients in blender or food processor
 

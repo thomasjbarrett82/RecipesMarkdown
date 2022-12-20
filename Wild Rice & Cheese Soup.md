@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 2 cups wild rice, cooked
 
 - 1# bacon
@@ -10,11 +14,11 @@
 
 - 2 cups shredded Cheddar
 
-## PREP
+## Prep
 
 - Heat large, heavy pan over medium
 
-## DIRECTIONS
+## Directions
 
 - Cook bacon in pan, removing and crumbling after cool
 

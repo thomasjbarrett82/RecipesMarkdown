@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - EVOO
 
 - 1 lb. penne pasta
@@ -12,13 +16,13 @@
 
 - Parmesan cheese
 
-## PREP
+## Prep
 
 - Heat oven to 350 F
 
 - Lightly grease a 9x13 baking dish with EVOO
 
-## DIRECTIONS
+## Directions
 
 - Cook the pasta to al dente and drain
 

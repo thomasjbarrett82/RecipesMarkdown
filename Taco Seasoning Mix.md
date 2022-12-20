@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 1 tbsp chili powder
 
 - 1 tbsp cumin
@@ -12,7 +16,7 @@
 
 - ½ tsp paprika
 
-## DIRECTIONS
+## Directions
 
 - Mix all ingredients in a bowl
 

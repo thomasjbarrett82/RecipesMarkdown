@@ -1,3 +1,7 @@
+# Chicken & Dumplings
+
+## Ingredients
+
 - 1 whole stewing chicken, cut up
 
 - 3 -4 sprigs parsley
@@ -14,19 +18,19 @@
 
 - Cold water
 
-- DUMPLINGS
+### Dumplings
 
-  - 1 ½ cup flour
+- 1 ½ cup flour
 
-  - 3 tsp baking powder
+- 3 tsp baking powder
 
-  - ½ tsp salt
+- ½ tsp salt
 
-  - ¾ cup milk
+- ¾ cup milk
 
-  - 1 tsp parsley, minced
+- 1 tsp parsley, minced
 
-## DIRECTIONS
+## Directions
 
 - Add chicken, veggies, and seasoning to large pot
 

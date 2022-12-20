@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 1 lb. marshmallows
 
 - ½ cup oil
@@ -12,7 +16,7 @@
 
 - Food coloring
 
-## DIRECTIONS
+## Directions
 
 - Microwave marshmallows, butter, and oil
 

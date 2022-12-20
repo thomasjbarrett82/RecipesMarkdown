@@ -1,14 +1,18 @@
+# 
+
+## Ingredients
+
 - 1 15 oz. can coconut milk
 
 - ¼ cup powdered sugar
 
 - 1 tsp. vanilla extract
 
-## PREP
+## Prep
 
 - Place coconut milk in freezer overnight.
 
-## DIRECTIONS
+## Directions
 
 - Open coconut milk and remove solids, discard the liquid.
 

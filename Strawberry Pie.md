@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 1 graham cracker crust
 
 - 1 pound + 2 pounds fresh strawberries, sliced
@@ -14,13 +18,13 @@
 
 - Whipped cream for serving
 
-## PREP
+## Prep
 
 - Slice the 2 pounds of strawberries
 
 - Stir in large bowl with sugar to macerate for 1 hour
 
-## DIRECTIONS
+## Directions
 
 - Place 1 lb. strawberries in food processor and puree
 

@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 2 eggs
 
 - 1 cup buttermilk
@@ -16,11 +20,11 @@
 
 - 1 tsp. salt
 
-## PREP
+## Prep
 
 - Heat griddle to 375 F
 
-## DIRECTIONS
+## Directions
 
 - In a small bowl, beat the eggs well
 

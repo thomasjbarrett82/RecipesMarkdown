@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 1 banana, sliced
 
 - 1 cup tropical fruit
@@ -10,13 +14,13 @@
 
 - 1 ½ cups water
 
-## PREP
+## Prep
 
 - If desired, combine all ingredients in a wide-mouth mason jar
 
 - Freeze for later use
 
-## DIRECTIONS
+## Directions
 
 - Add all ingredients to a strong blender
 

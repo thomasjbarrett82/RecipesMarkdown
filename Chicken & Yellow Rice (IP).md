@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 1 tsp. olive oil
 
 - 2 pounds chicken breast or thigh, cubed
@@ -24,11 +28,11 @@
 
 - 1 tbsp. hot sauce
 
-## PREP
+## Prep
 
 - Heat olive oil in IP over Sauté
 
-## DIRECTIONS
+## Directions
 
 - Brown chicken in olive oil, remove and set aside
 

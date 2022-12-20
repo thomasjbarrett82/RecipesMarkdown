@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - ½ cup brown sugar
 
 - ¼ cup kosher salt
@@ -18,7 +22,7 @@
 
 - 1 tsp smoked paprika
 
-## PREP
+## Prep
 
 - Mix all ingredients
 

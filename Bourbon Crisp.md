@@ -1,4 +1,8 @@
-Fruit Mixture
+# Bourbon Crisp
+
+## Ingredients
+
+### Fruit Mixture
 
 - 3 ripe peaches — pitted, peeled, and sliced
 
@@ -16,7 +20,7 @@ Fruit Mixture
 
 - 1 tsp. ground nutmeg
 
-Topping
+### Topping
 
 - 1 cup granola
 
@@ -26,20 +30,16 @@ Topping
 
 - 4 Tbsp. cold butter, cubed
 
-## PREP
+## Prep
 
 - Preheat oven to 375 degrees F.
 
-## DIRECTIONS
+## Directions
 
-- Toss the fruit mixture together into a greased cooking pan until
-    evenly combined.
+- Toss the fruit mixture together into a greased cooking pan until evenly combined.
 
-- Next, add the topping ingredients in a mixing bowl, cutting the
-    butter into the dry ingredients until you get a course crumble.
+- Next, add the topping ingredients in a mixing bowl, cutting the butter into the dry ingredients until you get a course crumble.
 
-- Spread the topping over the top of the fruit mixture and bake for
-    30-40 minutes or until browned and crispy.
+- Spread the topping over the top of the fruit mixture and bake for 30-40 minutes or until browned and crispy.
 
-- Cool slightly before serving. Serve with vanilla ice cream if
-    desired.
+- Cool slightly before serving. Serve with vanilla ice cream if desired.

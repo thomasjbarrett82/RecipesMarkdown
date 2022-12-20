@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 350 g. flour, plus more for dusting
 
 - 25 g. sugar
@@ -8,7 +12,7 @@
 
 - 6 tbsp. cold water or vodka
 
-## DIRECTIONS
+## Directions
 
 - Whisk flour, sugar, and salt in a large bowl
 

@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 3 avocados
 
 - 3 cloves garlic, minced
@@ -18,7 +22,7 @@
 
 - Kosher salt
 
-## DIRECTIONS
+## Directions
 
 - Pit and mash the avocado in a bowl
 

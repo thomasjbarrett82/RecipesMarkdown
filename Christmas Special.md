@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - ~5 gallons filtered water
 
 - 6 oz. crystal malt
@@ -30,7 +34,7 @@
 
 - ¾ cup amber malt extract
 
-## DIRECTIONS
+## Directions
 
 - Bring one gallon of water to ~150 degrees F
 

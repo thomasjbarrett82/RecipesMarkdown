@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 1 package corn bread mix + eggs & milk
 
 - 1 cup Cheddar, shredded
@@ -14,7 +18,7 @@
 
 - 1 can corn, drained
 
-## PREP
+## Prep
 
 - Heat large cast iron skillet over med-high heat
 
@@ -24,7 +28,7 @@
 
 - Add Cheddar and chili’s to the corn bread mixture
 
-## DIRECTIONS
+## Directions
 
 - Cook meat in skillet
 

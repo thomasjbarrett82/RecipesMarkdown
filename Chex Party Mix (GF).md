@@ -1,3 +1,7 @@
+# Chex Party Mix (GF)
+
+## Ingredients
+
 - 2 cups Corn Chex
 
 - 2 cups Rice Chex
@@ -18,7 +22,7 @@
 
 - 2 cups Act II Butter Lover’s popcorn, popped
 
-## DIRECTIONS
+## Directions
 
 - In large bowl, mix together cereals and pretzels
 

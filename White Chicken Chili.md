@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 1 lb dried white beans
 
 - Kosher salt
@@ -34,13 +38,13 @@
 
 - 4-6 green onions or scallions, sliced
 
-## PREP
+## Prep
 
 - Soak beans with ¼ cup salt for 12-24 hours
 
 - Toss chilis, onion, & garlic with 1 tbsp oil
 
-## DIRECTIONS
+## Directions
 
 - Broil fresh chilis, onion, & garlic until blackened, and rest for 5
     minutes

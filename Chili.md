@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 1# ground beef
 
 - ½ yellow onion, chopped
@@ -24,11 +28,11 @@
 
 - 1 can black beans, drained & rinsed
 
-## PREP
+## Prep
 
 - Place pan or skillet over med-high heat
 
-## DIRECTIONS
+## Directions
 
 - Place beef, onion, and peppers in pan
 

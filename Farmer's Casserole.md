@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 3 cups hash browns
 
 - 1 cup Monterey Jack, shredded
@@ -14,13 +18,13 @@
 
 - 1 tsp. salt
 
-## PREP
+## Prep
 
 - The night prior, grease 9x13 baking dish
 
 - Before cooking, heat oven to 350
 
-## DIRECTIONS
+## Directions
 
 - Spread hash browns evenly on bottom of dish
 

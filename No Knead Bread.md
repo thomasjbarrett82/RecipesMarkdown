@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 650 g. flour (a/p or bread)
 
 - ½ tsp. instant yeast
@@ -10,7 +14,7 @@
 
 - Cornmeal for dusting
 
-## PREP 1
+## Prep 1
 
 - Combine flour, yeast, salt in a large bowl
 
@@ -18,7 +22,7 @@
 
 - Cover with plastic wrap and rest for 18 hours at room temperature
 
-## PREP 2
+## Prep 2
 
 - Lightly flour a work surface and transfer dough to it
 
@@ -32,7 +36,7 @@
 
 - Let rise for 2 more hours
 
-## DIRECTIONS
+## Directions
 
 - Heat oven to 450 F with Dutch oven inside
 

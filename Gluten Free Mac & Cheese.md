@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 16 oz. gluten-free shells or elbow macaroni
 
 - 4 tbsp. butter
@@ -12,13 +16,13 @@
 
 - 8 oz. shredded Cheddar cheese
 
-## PREP
+## Prep
 
 - Cook pasta in boiling water, drain & set aside
 
 - Heat medium pot over medium-low
 
-## DIRECTIONS
+## Directions
 
 - Melt butter in pot
 

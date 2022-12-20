@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 1# ground beef
 
 - 1 onion, chopped
@@ -26,7 +30,7 @@
 
 - Parsley for garnish
 
-## PREP
+## Prep
 
 - Lasagna should be assembled and left covered in fridge overnight
 
@@ -36,7 +40,7 @@
 
 - Place large pan over med-high heat
 
-## DIRECTIONS
+## Directions
 
 - Brown beef, onion, & garlic in pan, drain off fat
 

@@ -1,3 +1,7 @@
+# Buns
+
+## Ingredients
+
 - 1 cup water
 
 - 1 tbsp. butter
@@ -12,13 +16,13 @@
 
 - ¼ oz. active yeast
 
-## PREP
+## Prep
 
 - Place ingredients in bread maker on dough cycle
 
 - Grease a large baking sheet
 
-## DIRECTIONS
+## Directions
 
 - After dough cycle completes, move to bowl with ½ cup flour
 

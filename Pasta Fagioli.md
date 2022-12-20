@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 1 can Northern beans
 
 - 1# ground beef, browned & drained
@@ -22,7 +26,7 @@
 
 - 3 cups cooked pasta
 
-## DIRECTIONS
+## Directions
 
 - Combine all ingredients except pasta in crockpot
 

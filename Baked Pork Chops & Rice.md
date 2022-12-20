@@ -1,6 +1,6 @@
-# 
+# Baked Pork Chops & Rice
 
-## INGREDIENTS
+## Ingredients
 
 - 6 pork chops
 
@@ -12,7 +12,7 @@
 
 - 1 pkg dry onion & mushroom soup mix
 
-## PREP
+## Prep
 
 - Heat oven to 400 degrees
 
@@ -22,7 +22,7 @@
 
   - Shorten the baking time to 25 minutes
 
-## DIRECTIONS
+## Directions
 
 - Mix rice milk, cornstarch, and soup mix in a small pot
 

@@ -1,6 +1,10 @@
+# Beef & Mushroom Soup
+
+## Ingredients
+
 - 1 tbsp olive oil
 
-- 2# boneless roast
+- 2 lbs. boneless roast
 
 - 1 tsp kosher salt
 
@@ -22,11 +26,11 @@
 
 - ½ tsp fennel seeds
 
-## PREP
+## Prep
 
 - Heat olive oil in Dutch oven (or braising pan) over med-high heat
 
-## DIRECTIONS
+## Directions
 
 - In shallow dish, mix salt, pepper, and flour
 
@@ -46,13 +50,8 @@
 
 - Let braise for 2 hours until fork tender
 
-- Skim fat with ladle\*
+- Skim fat with ladle (ice cube inside to help fat congeal)
 
 - Add remaining ingredients and let simmer for another ½ hour
 
 - Season with salt & pepper to taste
-
-<!-- -->
-
-- Place ice cube in metal ladle and run bottom around the surface. Fat
-    will congeal on the bottom of the ladle and can be wiped off.

@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 1 ½# corned beef
 
 - 2 cups drained sauerkraut
@@ -18,7 +22,7 @@
 
 - 1000 Island dressing
 
-## DIRECTIONS
+## Directions
 
 - Trim excess fat from corned beef and place into crockpot
 

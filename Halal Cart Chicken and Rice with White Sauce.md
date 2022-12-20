@@ -1,6 +1,6 @@
 # Halal Cart Chicken and Rice with White Sauce
 
-## INGREDIENTS
+## Ingredients
 
 ### CHICKEN MARINADE
 
@@ -54,7 +54,7 @@
 
 - Pita bread, toasted, buttered, and sliced
 
-## PREP
+## Prep
 
 - Blend marinade and reserve half for later
 
@@ -62,7 +62,7 @@
 
 - Combine white sauce ingredients in a bowl and refrigerate
 
-## DIRECTIONS
+## Directions
 
 - Heat some oil in a large skillet or Dutch Oven over med-high heat
 

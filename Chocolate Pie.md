@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - Crust
 
   - 1 ½ cups graham cracker crumbs
@@ -22,7 +26,7 @@
 
   - 2 eggs
 
-## PREP
+## Prep
 
 - Combine crust ingredients in medium bowl
 
@@ -32,7 +36,7 @@
 
 - Remove and place in the fridge to cool
 
-## DIRECTIONS
+## Directions
 
 - Melt the butter and chocolate in a saucepan over low heat
 

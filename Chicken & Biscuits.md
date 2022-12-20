@@ -1,3 +1,7 @@
+# Chicken & Biscuits
+
+## Ingredients
+
 - 2 tbsp. EVOO
 
 - 2 lbs. chicken breast or thigh
@@ -18,13 +22,13 @@
 
 - 1 package buttermilk biscuits, quartered
 
-## PREP
+## Prep
 
 - Heat EVOO in large cast iron skillet over med-high heat
 
 - Heat oven to 400 F
 
-## DIRECTIONS
+## Directions
 
 - Cook chicken in skillet until browned
 

@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 1 cup smooth nut butter (270 g)
 
 - ½ cup sugar (120 g)
@@ -12,11 +16,11 @@
 
 - ¼ tsp. kosher salt
 
-## PREP
+## Prep
 
 - Heat oven to 350 F (180 C)
 
-## DIRECTIONS
+## Directions
 
 - In a bowl combine the nut butter and sugars
 

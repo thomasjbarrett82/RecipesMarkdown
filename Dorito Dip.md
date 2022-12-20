@@ -1,10 +1,14 @@
+# 
+
+## Ingredients
+
 - 1 can chicken gumbo soup
 
 - ¾ lb. Velveeta cheese, cut up
 
 - 1 small can green chilies, drained & chopped
 
-## DIRECTIONS
+## Directions
 
 - Mix all ingredients in a bowl
 

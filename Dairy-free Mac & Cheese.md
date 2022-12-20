@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 16 oz shells or elbow macaroni
 
 - 2 tbsp. dairy-free margarine
@@ -10,13 +14,13 @@
 
 - 1 package Cheddar Daiya
 
-## PREP
+## Prep
 
 - Cook pasta in boiling water, drain & set aside
 
 - Heat medium pot over medium-low
 
-## DIRECTIONS
+## Directions
 
 - Melt margarine in pot
 

@@ -1,14 +1,20 @@
-- Filling:
+# Black Bottom Cupcakes
 
-  - 6 oz. chocolate chips
+## Ingredients
 
-  - 8 oz. cream cheese
+### Filling
 
-  - 1 egg
+- 6 oz. chocolate chips
 
-  - 1/3 cup sugar
+- 8 oz. cream cheese
 
-  - 1/8 tsp. salt
+- 1 egg
+
+- 1/3 cup sugar
+
+- 1/8 tsp. salt
+
+### Cupcake
 
 - 1 ½ cup flour
 
@@ -26,7 +32,7 @@
 
 - 1 tsp. vanilla
 
-## PREP
+## Prep
 
 - Heat oven to 350 F
 
@@ -34,7 +40,7 @@
 
 - Place liners in cupcake pan
 
-## DIRECTIONS
+## Directions
 
 - Melt chips in double boiler
 
@@ -44,8 +50,7 @@
 
 - Stir in water, oil, & vanilla until smooth
 
-- Fill each liner 1/3 full with dough, 1 tbsp. filling, then top with
-    dough
+- Fill each liner 1/3 full with dough, 1 tbsp. filling, then top with dough
 
 - Bake about 20 minutes
 

@@ -1,3 +1,7 @@
+# Beef Bourguignon
+
+## Ingredients
+
 - 1 tbsp. EVOO
 
 - 8 oz. bacon, chopped
@@ -32,13 +36,13 @@
 
 - 2 tbsp. butter
 
-## PREP
+## Prep
 
 - Heat oven to 350 F
 
 - Heat EVOO in Dutch Oven over med heat
 
-## DIRECTIONS
+## Directions
 
 - Cook bacon until crisp and browned, remove, and set aside
 

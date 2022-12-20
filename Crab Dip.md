@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 1 clove garlic, minced
 
 - 1 can minced crab
@@ -10,7 +14,7 @@
 
 - Salt and pepper
 
-## DIRECTIONS
+## Directions
 
 - Mix all ingredients in a bowl
 

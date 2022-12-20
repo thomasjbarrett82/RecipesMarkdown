@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 4 cans Pillsbury biscuits, quartered
 
 - ½ cup butter
@@ -8,11 +12,11 @@
 
 - Cinnamon
 
-## PREP
+## Prep
 
 - Heat oven to 350° F
 
-## DIRECTIONS
+## Directions
 
 - Place biscuits in greased 9x13 casserole dish
 

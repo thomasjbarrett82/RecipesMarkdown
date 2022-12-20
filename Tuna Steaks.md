@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - MARINADE:
 
   - 3 cloves garlic, minced
@@ -22,13 +26,13 @@
 
 - 32 oz of tuna steaks
 
-## PREP
+## Prep
 
 - Mix marinade and let steaks sit for 1-2 hours before cooking
 
 - Before cooking, heat heavy skillet over med-high heat
 
-## DIRECTIONS
+## Directions
 
 - Place 2 tbsp of oil in hot skillet
 

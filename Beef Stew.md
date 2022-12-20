@@ -1,3 +1,7 @@
+# Beef Stew
+
+## Ingredients
+
 - 2 tbsp. EVOO
 
 - 3 lbs. chuck roast, cubed
@@ -28,13 +32,13 @@
 
 - 1 lb. carrots, peeled and cut
 
-## PREP
+## Prep
 
 - Heat Dutch oven on high, or instant pot on sauté
 
 - Heat oven to 325° F
 
-## DIRECTIONS
+## Directions
 
 - Heat EVOO in the pot and season the beef with salt and pepper
 

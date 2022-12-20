@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 4-5# fryer chicken
 
 - Kosher salt
@@ -12,7 +16,7 @@
 
 - 1 cup pearl onions, peeled
 
-## PREP
+## Prep
 
 - Butterfly chicken and season w/ salt & pepper
 
@@ -20,7 +24,7 @@
 
 - Before cooking, heat oven to 450° F
 
-## DIRECTIONS
+## Directions
 
 - Pour olive oil in bottom of roasting pan and spread around
 

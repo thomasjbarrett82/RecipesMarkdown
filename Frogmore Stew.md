@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 4 quarts water
 
 - 1 bottle beer
@@ -14,7 +18,7 @@
 
 - 2# crab legs or other desired seafood
 
-## DIRECTIONS
+## Directions
 
 - Heat water, beer, and Old Bay in large pot until boiling
 

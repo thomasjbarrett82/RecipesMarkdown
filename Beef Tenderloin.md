@@ -1,3 +1,7 @@
+# Beef Tenderloin
+
+## Ingredients
+
 - 1 beef tenderloin, trimmed
 
 - Kosher salt and black pepper
@@ -12,7 +16,7 @@
 
 - Horseradish cream, for serving
 
-## PREP
+## Prep
 
 - Tie tenderloin with butcher’s twine at 1 inch intervals
 
@@ -22,12 +26,11 @@
 
 - Refrigerate uncovered for 8-36 hours
 
-## DIRECTIONS
+## Directions
 
 - Heat oven to 225 F
 
-- Place sheet in oven and roast until internal temp is 120 F (2-3
-    hours)
+- Place sheet in oven and roast until internal temp is 120 F (2-3 hours)
 
 - Remove and let rest for 10 minutes
 

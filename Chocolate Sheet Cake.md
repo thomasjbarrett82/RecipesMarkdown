@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 2 cups flour
 
 - 2 cups sugar
@@ -22,13 +26,13 @@
 
 - Chocolate frosting for decoration
 
-## PREP
+## Prep
 
 - Grease a large baking sheet or dish
 
 - Heat oven to 350 F
 
-## DIRECTIONS
+## Directions
 
 - Whisk together the dry ingredients in a large bowl
 

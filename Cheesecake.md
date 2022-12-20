@@ -1,3 +1,7 @@
+# Cheesecake
+
+## Ingredients
+
 - 2 cups crushed graham crackers
 
 - ½ stick melted butter
@@ -14,11 +18,11 @@
 
 - 1 cup fruit preserves
 
-## PREP
+## Prep
 
 - Heat the oven to 350 F
 
-## DIRECTIONS
+## Directions
 
 - Mix the crackers and butter
 

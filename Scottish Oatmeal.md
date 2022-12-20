@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 1 T. butter
 
 - 1 cup steel cut oats
@@ -8,7 +12,7 @@
 
 - 1 t. kosher salt
 
-## DIRECTIONS
+## Directions
 
 - Melt the butter in a heavy pot
 

@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 1 ¾ cup flour
 
 - 2 tbsp. sugar
@@ -12,11 +16,11 @@
 
 - 1 tsp. vanilla
 
-## PREP
+## Prep
 
 - Heat waffle iron
 
-## DIRECTIONS
+## Directions
 
 - Mix all ingredients together
 

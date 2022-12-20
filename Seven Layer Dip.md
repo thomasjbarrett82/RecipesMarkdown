@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 16 oz. can refried beans
 
 - 1 T. taco seasoning mix
@@ -16,7 +20,7 @@
 
 - Tortilla chips
 
-## DIRECTIONS
+## Directions
 
 - Mix the beans & taco seasoning in a small bowl
 

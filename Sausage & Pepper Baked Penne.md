@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 8 oz cooked penne pasta (al dente)
 
 - 2 tsp olive oil
@@ -20,13 +24,13 @@
 
 - 2 cups marinara sauce
 
-## PREP
+## Prep
 
 - Heat oven to 400°F
 
 - Heat oil in large skillet over medium heat
 
-## DIRECTIONS
+## Directions
 
 - Cook peppers, onion, and sausage in skillet until browned
 

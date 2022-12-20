@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - EVOO or butter
 
 - 1 clove garlic, minced
@@ -18,11 +22,11 @@
 
 - ¼ cup fresh mozzarella, shredded
 
-## PREP
+## Prep
 
 - Heat the broiler with the grill directly underneath
 
-## DIRECTIONS
+## Directions
 
 - Sauté the garlic in a large pan until softened
 

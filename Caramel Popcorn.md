@@ -1,3 +1,7 @@
+# Caramel Popcorn
+
+## Ingredients
+
 - 1 cup brown sugar
 
 - ¼ cup butter
@@ -10,7 +14,7 @@
 
 - 3-4 quarts popped corn
 
-## DIRECTIONS
+## Directions
 
 - In medium bowl, combine sugar, butter, syrup, and salt
 

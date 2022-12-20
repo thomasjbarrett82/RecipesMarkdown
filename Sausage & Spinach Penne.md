@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 1# penne pasta
 
 - 2 tbsp olive oil
@@ -16,11 +20,11 @@
 
 - Parmesan, salt & pepper to taste
 
-## PREP
+## Prep
 
 - Heat large pot with water for pasta
 
-## DIRECTIONS
+## Directions
 
 - Cook pasta according to box, drain and set aside
 

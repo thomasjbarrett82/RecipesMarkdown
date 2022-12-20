@@ -1,16 +1,14 @@
+# Brown Rice
+
+## Ingredients
+
 - 1 cup brown rice
 
-- 4 cups water (stovetop)
-
-- 1 cup water (Instant Pot)
+- 4 cups water (stovetop) OR 1.1 cup water (Instant Pot)
 
 - 1 tsp salt
 
-## PREP
-
-- Rinse rice under cold water
-
-## DIRECTIONS
+## Directions
 
 - Stovetop:
 
@@ -28,7 +26,7 @@
 
 - Instant Pot:
 
-  - Cook on high for 15 minutes
+  - Cook on high/porridge for 15 minutes
 
   - Natural release for 5 minutes
 

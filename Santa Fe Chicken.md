@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 1 lb chicken breast
 
 - 1 tsp olive oil
@@ -24,11 +28,11 @@
 
 - Salt to taste
 
-## PREP
+## Prep
 
 - Heat pan to medium
 
-## DIRECTIONS
+## Directions
 
 - Heat oil in pan
 

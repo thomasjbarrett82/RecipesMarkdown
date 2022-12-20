@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 400 grams bread flour
 
 - 10 grams kosher salt
@@ -16,11 +20,11 @@
 
 - Grated Parmesan
 
-## PREP
+## Prep
 
 - Prep the dough 24 hours ahead of time
 
-## DIRECTIONS
+## Directions
 
 - Combine the flour, salt, yeast, water, and oil in large bowl
 

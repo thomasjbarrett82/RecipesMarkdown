@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 2-3 lbs. fresh tomatoes
 
 - 2-4 red/yellow/orange bell peppers, deseeded
@@ -14,7 +18,7 @@
 
 - 1 tbsp. kosher salt
 
-## PREP
+## Prep
 
 - Cut the tomatoes & peppers in half
 
@@ -22,7 +26,7 @@
 
 - Preheat oven to 250° F
 
-## DIRECTIONS
+## Directions
 
 - Arrange the vegetables in a large casserole dish (2-3 inches thick)
 

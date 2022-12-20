@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 1 cup light corn syrup
 
 - 2 cups white sugar
@@ -10,11 +14,11 @@
 
 - 6 oz butterscotch chips
 
-## PREP
+## Prep
 
 - Place saucepot over medium-low heat
 
-## DIRECTIONS
+## Directions
 
 - Add corn syrup and sugar to pot
 

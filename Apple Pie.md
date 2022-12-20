@@ -1,9 +1,8 @@
-# 
+# Apple Pie
 
-## INGREDIENTS
+## Ingredients
 
-- 5 lbs. apples, peeled, cored, and sliced ½ inch thick (Golden
-    Delicious or Braeburn) (2.25 kg.)
+- 5 lbs. apples, peeled, cored, and sliced ½ inch thick (Golden Delicious or Braeburn) (2.25 kg.)
 
 - ¾ cup sugar (150 g.)
 
@@ -21,16 +20,15 @@
 
 - 1 T. sugar
 
-## PREP
+## Prep
 
 - Preheat oven to 425 degrees F
 
 - Preheat Dutch oven on stovetop on low heat
 
-## DIRECTIONS
+## Directions
 
-- Toss apple slices with sugar, cornstarch, cinnamon, juice, zest, and
-    salt
+- Toss apple slices with sugar, cornstarch, cinnamon, juice, zest, and salt
 
 - Let rest for 10 minutes
 
@@ -40,8 +38,7 @@
 
 - Increase heat to med-high and stir until juices are thickened
 
-- Transfer to a large baking sheet and spread out to cool completely
-    (1 hour)
+- Transfer to a large baking sheet and spread out to cool completely (1 hour)
 
 - Roll dough disks out to 12 inches
 
@@ -63,7 +60,6 @@
 
 - Bake until light golden brown (20 minutes)
 
-- Reduce heat to 350 degrees F and continue until deep golden brown
-    (25 minutes)
+- Reduce heat to 350 degrees F and continue until deep golden brown (25 minutes)
 
 - Remove and let cool for 4 hours before serving

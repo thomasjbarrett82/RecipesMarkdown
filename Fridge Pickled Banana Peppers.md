@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 2 lbs. large banana peppers
 
 - 1 clove garlic, minced
@@ -12,7 +16,7 @@
 
 - 1 tsp. peppercorns
 
-## DIRECTIONS
+## Directions
 
 - Wash and slice the peppers into ¼ inch rounds
 

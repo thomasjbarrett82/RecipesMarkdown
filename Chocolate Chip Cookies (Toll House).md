@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 2 ¼ cup flour
 
 - 1 tsp baking soda
@@ -18,11 +22,11 @@
 
 - 1 cup chopped nuts (optional)
 
-## PREP
+## Prep
 
 - Heat oven to 375° F
 
-## DIRECTIONS
+## Directions
 
 - Mix flour, baking soda, and salt in medium bowl
 

@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 2 lbs. boneless skinless chicken thighs, cut into small chunks
 
 - 1 tsp. kosher salt
@@ -30,7 +34,7 @@
 
 - 8-10 dried red chilis OR 1 tsp. red pepper flakes
 
-## PREP
+## Prep
 
 - Combine chicken, salt, 1 tsp. soy/vinegar/sugar/sesame
     oil/cornstarch
@@ -40,7 +44,7 @@
 - Combine 1 tbsp. soy/vinegar/sugar/sesame oil/cornstarch, chicken
     stock for sauce
 
-## DIRECTIONS
+## Directions
 
 - Heat 1 tbsp. oil over high heat in wok until smoking
 

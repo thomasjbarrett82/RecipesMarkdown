@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 15 oz can northern beans
 
 - 1 can tomato juice
@@ -20,7 +24,7 @@
 
 - 1# ring sausage, sliced
 
-## DIRECTIONS
+## Directions
 
 - In crockpot, combine beans, juice, carrots, celery, onion, garlic,
     granules, basil, and oregano

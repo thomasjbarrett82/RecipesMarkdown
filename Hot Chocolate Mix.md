@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 6 oz. Coffee mate
 
 - ½ cup powdered sugar
@@ -6,12 +10,12 @@
 
 - 1 lb. powdered chocolate drink mix
 
-## PREP
+## Prep
 
 - Mix all ingredients together
 
 - Store in airtight container
 
-## DIRECTIONS
+## Directions
 
 - Add ¼ cup mix to 1 cup hot water or milk

@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 2 14 oz cans sweetened, condensed milk
 
 - 1 pint heavy cream
@@ -6,13 +10,13 @@
 
 - 2 sleeves Ritz crackers
 
-## PREP
+## Prep
 
 - Halve limes and squeeze juice into bowl
 
 - Zest 1 tbsp from the limes
 
-## DIRECTIONS
+## Directions
 
 - Combine milk & cream in large bowl
 

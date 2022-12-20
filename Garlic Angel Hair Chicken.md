@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 1 + 1 tbsp olive oil
 
 - 2# chicken breast, cubed
@@ -16,11 +20,11 @@
 
 - ¼ Parmesan (optional)
 
-## PREP
+## Prep
 
 - Heat large pan over med-high heat
 
-## DIRECTIONS
+## Directions
 
 - Heat 1 tbsp oil in pan
 

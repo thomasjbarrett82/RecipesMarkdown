@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - Instant mashed potatoes
 
 - ½ t. + ½ t. black pepper
@@ -32,11 +36,11 @@
 
 - 1 bag frozen corn and peas
 
-## PREP
+## Prep
 
 - Preheat the oven to 400 degrees F
 
-## DIRECTIONS
+## Directions
 
 - Prepare the mashed potatoes for 4 servings (box instructions)
 

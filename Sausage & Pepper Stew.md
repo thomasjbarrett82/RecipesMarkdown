@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 1# ground sausage
 
 - 3 bell peppers, diced
@@ -18,11 +22,11 @@
 
 - Salt & pepper to taste
 
-## PREP
+## Prep
 
 - Heat large pot over medium
 
-## DIRECTIONS
+## Directions
 
 - Brown sausage in pot
 

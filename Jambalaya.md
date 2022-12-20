@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 1 T. lard or EVOO
 
 - ½-1 lb. Andouille sausage, sliced
@@ -34,13 +38,13 @@
 
 - Salt & pepper, to taste
 
-## PREP
+## Prep
 
 - Heat large Dutch oven over medium high heat
 
 - Heat oven to 325 F
 
-## DIRECTIONS
+## Directions
 
 - Brown the sausage in lard and remove
 

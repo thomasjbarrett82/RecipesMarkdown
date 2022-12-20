@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 16 cups potatoes
 
 - ½ cup shortening
@@ -12,7 +16,7 @@
 
 - 3 cups flour
 
-## PREP
+## Prep
 
 - Boil and rice the potatoes
 
@@ -22,7 +26,7 @@
 
 - Set aside for several hours in the fridge
 
-## DIRECTIONS
+## Directions
 
 - Mix in flour thoroughly
 

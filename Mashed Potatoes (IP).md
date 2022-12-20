@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 3 lbs. russet potatoes, peeled & chunked
 
 - 3+ cups water
@@ -8,7 +12,7 @@
 
 - Salt & pepper
 
-## DIRECTIONS
+## Directions
 
 - Place potatoes in pot
 

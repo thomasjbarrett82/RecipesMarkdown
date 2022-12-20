@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 1# ground beef
 
 - 1 onion, diced
@@ -20,11 +24,11 @@
 
 - 16 oz spaghetti noodles, cooked
 
-## PREP
+## Prep
 
 - Heat large pot over med-high
 
-## DIRECTIONS
+## Directions
 
 - Place beef, onion, and garlic in pot
 

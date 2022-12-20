@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 1# ground beef
 
 - 1 package taco seasoning
@@ -10,13 +14,13 @@
 
 - OPTIONAL: salsa & sour cream
 
-## PREP
+## Prep
 
 - Heat oven to 375° F
 
 - Heat pan over med-high
 
-## DIRECTIONS
+## Directions
 
 - Brown beef in pan and drain the grease
 

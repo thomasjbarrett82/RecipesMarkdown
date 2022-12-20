@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 1 tbsp olive oil
 
 - ½ yellow onion, chopped
@@ -20,11 +24,11 @@
 
 - ½ tsp black pepper
 
-## PREP
+## Prep
 
 - Heat pan or skillet over med-high
 
-## DIRECTIONS
+## Directions
 
 - Heat oil in pan
 

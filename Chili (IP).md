@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 2 lbs. chuck roast, diced into chunks
 
 - 2 t. oil
@@ -28,7 +32,7 @@
 
 - 1 t. smoked paprika
 
-## DIRECTIONS
+## Directions
 
 - Toss the meat, oil, and salt in a large bowl and set aside
 

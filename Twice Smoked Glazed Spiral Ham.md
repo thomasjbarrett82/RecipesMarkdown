@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 8 lb. spiral ham
 
 - 1 cup chicken stock
@@ -18,11 +22,11 @@
 
   - 1 tbsp. BBQ rub mix
 
-## PREP
+## Prep
 
 - Prepare smoker for 225 F
 
-## DIRECTIONS
+## Directions
 
 - Smoke ham, cut side down on grill grates, for 1.5-2 hours
 

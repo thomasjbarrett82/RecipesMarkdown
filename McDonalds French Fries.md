@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 4-5 russet potatoes, peeled & fry cut
 
 - Brine:
@@ -14,13 +18,13 @@
 
 - Table salt
 
-## PREP
+## Prep
 
 - Mix the brine in 3 qt. pot with lid
 
 - Place the fries into the pot and refrigerate for at least 2 hours
 
-## DIRECTIONS
+## Directions
 
 - Bring pot to a full boil for 2 minutes
 

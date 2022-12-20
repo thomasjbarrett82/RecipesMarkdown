@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 2 lbs. lean ground beef
 
 - 2 onions, chopped
@@ -26,11 +30,11 @@
 
 - 2 cups uncooked elbow macaroni
 
-## PREP
+## Prep
 
 - Heat Dutch oven over med-high
 
-## DIRECTIONS
+## Directions
 
 - Brown the ground beef
 

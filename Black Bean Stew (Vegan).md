@@ -1,3 +1,7 @@
+# Black Bean Stew (Vegan)
+
+## Ingredients
+
 - 1 lb. black beans
 
 - 3 cups water
@@ -30,7 +34,7 @@
 
 - (Optional) diced avocado for serving
 
-## DIRECTIONS
+## Directions
 
 - Cook beans & water in instant pot for 35 minutes
 

@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 6 cups chicken broth/stock
 
 - 1# boneless, skinless chicken breast
@@ -14,11 +18,11 @@
 
 - Salt & pepper to taste
 
-## PREP
+## Prep
 
 - Place large saucepan/pot over med-high heat
 
-## DIRECTIONS
+## Directions
 
 - Put 1 cup of broth in saucepan, bring to a simmer
 

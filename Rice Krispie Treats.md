@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 1 box Rice Krispies
 
 - 1 stick butter (Kerry Gold is preferred)
@@ -6,7 +10,7 @@
 
 - ½ tsp. kosher salt
 
-## DIRECTIONS
+## Directions
 
 - Lightly toast the cereal in a large wok over medium-high heat
 

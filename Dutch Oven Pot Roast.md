@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 2 tbsp. EVOO
 
 - 3-4 lb. chuck or arm roast
@@ -12,7 +16,7 @@
 
 - 5 large carrots, cut into 1 inch chunks
 
-## PREP
+## Prep
 
 - Season the roast with salt & pepper
 
@@ -20,7 +24,7 @@
 
 - Heat a large Dutch oven on high
 
-## DIRECTIONS
+## Directions
 
 - Place EVOO in pot to heat up
 

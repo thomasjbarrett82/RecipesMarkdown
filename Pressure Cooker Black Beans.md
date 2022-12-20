@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 1 T. oil
 
 - 6 oz. chorizo, diced
@@ -16,11 +20,11 @@
 
 - Fresh cilantro, chopped
 
-## PREP
+## Prep
 
 - Heat the pressure cooker to sauté
 
-## DIRECTIONS
+## Directions
 
 - Add oil to cooker and heat to shimmering
 

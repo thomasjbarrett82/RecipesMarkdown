@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 2 whole eggs
 
 - 1 tsp mustard
@@ -14,7 +18,7 @@
 
 - 2 cups neutral oil
 
-## DIRECTIONS
+## Directions
 
 - Add all ingredients to a large mason jar
 

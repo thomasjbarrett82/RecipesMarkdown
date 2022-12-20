@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 12 Roma tomatoes, halved
 
 - 4 cloves garlic
@@ -22,11 +26,11 @@
 
 - Salt & pepper to taste
 
-## PREP
+## Prep
 
 - Heat oven to 450° F
 
-## DIRECTIONS
+## Directions
 
 - Place tomatoes, garlic, onion, peppers, & jalapeños on a pan
 

@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 2 packages crescent rolls
 
 - 16 oz. sour cream
@@ -8,11 +12,11 @@
 
 - 3-4 cups mixed fresh veggies, chopped/sliced/grated
 
-## PREP
+## Prep
 
 - Heat oven to 350 F
 
-## DIRECTIONS
+## Directions
 
 - Place roll dough in cookie sheet and bake for 10 minutes
 

@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 2 medium butternut squash (or other winter squash)
 
 - 12-15 cloves garlic, peeled
@@ -12,11 +16,11 @@
 
 - 2 tbsp sliced green onion
 
-## PREP
+## Prep
 
 - Heat oven to 350° F
 
-## DIRECTIONS
+## Directions
 
 - Cut squash in half length-wise
 

@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 2 lbs. ground beef
 
 - 2 onions, chopped
@@ -12,11 +16,11 @@
 
 - 2 packages chili seasoning
 
-## PREP
+## Prep
 
 - Heat instant pot on Sauté
 
-## DIRECTIONS
+## Directions
 
 - Brown beef in pot
 

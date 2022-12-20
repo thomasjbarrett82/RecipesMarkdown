@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 1/2# bacon, uncooked
 
 - 1 onion, diced
@@ -14,11 +18,11 @@
 
 - Shredded Cheddar
 
-## PREP
+## Prep
 
 - Heat large pot over medium
 
-## DIRECTIONS
+## Directions
 
 - Fry bacon and drain, reserving 2 tbsp of fat
 

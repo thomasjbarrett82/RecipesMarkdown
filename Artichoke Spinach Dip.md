@@ -1,6 +1,6 @@
-# 
+# Artichoke Spinach Dip
 
-## INGREDIENTS
+## Ingredients
 
 - 10 ounce box frozen chopped spinach, thawed and drained
 
@@ -20,11 +20,11 @@
 
 - 1 cup Pepper Jack, shredded
 
-## PREP
+## Prep
 
 - Heat oven to 450 F
 
-## DIRECTIONS
+## Directions
 
 - Mix everything together except pepper jack cheese
 

@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 1 cup uncooked wild rice
 
 - 1 T. + 1 T. EVOO
@@ -20,7 +24,7 @@
 
 - 1 cup chicken stock
 
-## PREP
+## Prep
 
 - Rinse the wild rice with water and soak overnight
 
@@ -32,7 +36,7 @@
 
 - Pre-heat oven to 325 degrees F
 
-## DIRECTIONS
+## Directions
 
 - Heat 1T. EVOO in the skillet
 

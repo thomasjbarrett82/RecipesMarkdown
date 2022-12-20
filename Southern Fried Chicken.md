@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 2 cups buttermilk
 
 - 1 large egg
@@ -28,7 +32,7 @@
 
 - 4 cups neutral frying oil
 
-## PREP
+## Prep
 
 - Mix buttermilk, egg, baking powder, and salt in large plastic baggie
 
@@ -40,7 +44,7 @@
 
 - Place a wire rack on a rimmed baking sheet to the side
 
-## DIRECTIONS
+## Directions
 
 - Whisk spices, flour, and cornstarch in large bowl
 

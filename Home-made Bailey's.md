@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 1 cup heavy cream
 
 - 1 14 oz. can sweetened condensed milk
@@ -12,7 +16,7 @@
 
 - 1 tsp. almond extract (optional)
 
-## DIRECTIONS
+## Directions
 
 - Blend all ingredients on high for 1 minute.
 

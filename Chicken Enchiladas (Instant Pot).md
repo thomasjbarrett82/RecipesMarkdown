@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 1 tbsp. EVOO
 
 - 2 lbs. chicken breast or thighs, skinless
@@ -32,11 +36,11 @@
 
 - 4 oz. cotija or Mozzarella, shredded
 
-## PREP
+## Prep
 
 - Heat oven to 375 F
 
-## DIRECTIONS
+## Directions
 
 - Combine EVOO, chicken, spices, pepper, tomatoes, onion, garlic,
     chilies, adobo, and stock in Instant Pot

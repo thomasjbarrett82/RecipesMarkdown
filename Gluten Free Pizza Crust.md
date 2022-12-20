@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 1 tsp. rapid yeast
 
 - 1 tsp. sugar
@@ -16,7 +20,7 @@
 
 - 1 large egg
 
-## DIRECTIONS
+## Directions
 
 - Stir yeast, sugar, water in cup and set aside to bloom
 

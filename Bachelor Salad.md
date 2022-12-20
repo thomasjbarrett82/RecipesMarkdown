@@ -1,6 +1,6 @@
-# 
+# Bachelor Salad
 
-## INGREDIENTS
+## Ingredients
 
 - DRESSING:
 
@@ -30,7 +30,7 @@
 
 - 8 oz crumbled blue cheese
 
-## PREP
+## Prep
 
 - Mix dressing together and set aside
 
@@ -40,7 +40,7 @@
 
 - Heat oven to 450° F
 
-## DIRECTIONS
+## Directions
 
 - In bowl, toss potatoes w/ 1 tbsp oil, rosemary, salt & pepper
 

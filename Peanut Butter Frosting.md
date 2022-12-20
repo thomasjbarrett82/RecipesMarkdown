@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 2 cups sugar
 
 - ½ cup milk
@@ -6,7 +10,7 @@
 
 - 2 tbsp. peanut butter
 
-## DIRECTIONS
+## Directions
 
 - Combine sugar, milk, butter in pot over medium heat
 

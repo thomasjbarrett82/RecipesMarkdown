@@ -1,38 +1,38 @@
-# 
+# Apple Squares
 
-## INGREDIENTS
+## Ingredients
 
 ### Crust
 
-  - 2 ½ cups flour
+- 2 ½ cups flour
 
-  - ½ tsp. salt
+- ½ tsp. salt
 
-  - 1 cup shortening
+- 1 cup shortening
 
-  - 2 egg yolks
+- 2 egg yolks
 
-  - ¼ cup milk
+- ¼ cup milk
 
-- 1 cup crushed corn flakes
+### Filling
 
-- Filling:
+- 5 cups apple, diced
 
-  - 5 cups apple, diced
+- 1 cup sugar
 
-  - 1 cup sugar
+- 1 ½ tsp. cinnamon
 
-  - 1 ½ tsp. cinnamon
+### Other
 
 - 2 egg whites
 
 - Powdered sugar frosting (optional)
 
-## PREP
+## Prep
 
 - Heat oven to 350 F
 
-## DIRECTIONS
+## Directions
 
 - In medium bowl, combine crust ingredients
 

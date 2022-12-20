@@ -1,52 +1,41 @@
-# 
+# Banana Bread
 
-## INGREDIENTS
+## Ingredients
 
-- 1 cup sugar
+- ¾ cup butter, softened
 
-- 1 stick butter, softened
+- 1 ½ cup sugar
 
 - 2 eggs
 
-- 1 cup (2 medium) bananas, mashed
+- 1 tsp. vanilla OR 1 tbsp. Bailey’s
 
-- 1/3 cup milk
+- 2 mashed overripe bananas
 
-- ½ tsp. lemon juice
+- ½ cup sour cream
 
-- 1 tsp. vanilla
+- 2 cups flour
 
-- 2 cups all-purpose flour
+- 1 tsp. baking soda
 
-- ½ chopped walnuts (optional)
+- 1 tsp. kosher salt
 
-- 1 ½ tsp. baking powder
+## Prep
 
-- ½ tsp. baking soda
+- Heat oven to 350 F
 
-- ½ tsp. salt
+- Lightly grease bottom of 2 bread pans
 
-## PREP
+## Directions
 
-- Heat oven to 350 degrees Fahrenheit
+- In large bowl, cream sugar and butter
 
-- Grease the bottom of a 8x4 loaf pan
+- Mix in eggs, Bailey’s, bananas, and sour cream
 
-## DIRECTIONS
+- In a medium bowl, combine the flour, baking soda, and salt
 
-- In a large bowl, cream the sugar and butter until fluffy
+- Add dry to wet, avoiding overmixing
 
-- Beat in the eggs
+- Pour into bread pans
 
-- Blend in the bananas, milk, lemon juice, and vanilla
-
-- In a different bowl, combine the flour, nuts, baking soda & powder,
-    and salt
-
-- Add to the wet mixture and stir until moistened
-
-- Pour batter into the pan
-
-- Bake for 50-60 minutes
-
-- Cool in pan for 5 minutes before removing
+- Bake for 50-60 minutes, until done

@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 1 cup a/p flour
 
 - 1.5 lbs. boneless, skinless chicken
@@ -16,11 +20,11 @@
 
 - 1 t. lemon juice
 
-## PREP
+## Prep
 
 - Preheat oven to 200 degrees F with a large platter or sheet inside
 
-## DIRECTIONS
+## Directions
 
 - Put the flour in a shallow bowl next to the stove
 

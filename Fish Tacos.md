@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 3 tbsp. EVOO
 
 - 1 tbsp. lime juice
@@ -31,7 +35,7 @@
 - Sour cream, lime wedges, diced avocado, fresh cilantro, and
     tortillas for serving
 
-## PREP
+## Prep
 
 - Mix EVOO, lime juice, chili powder, paprika, cumin, salt in large
     bag/bowl
@@ -45,7 +49,7 @@
 
 - Set aside in fridge
 
-## DIRECTIONS
+## Directions
 
 - Heat vegetable oil in large skillet over med-high heat
 

@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 1 cup warm water
 
 - 1 tbsp yeast
@@ -12,12 +16,12 @@
 
 - ½ tsp baking powder
 
-## PREP
+## Prep
 
 - Add water, yeast, sugar, EVOO to mixer bowl, let sit for 5-10
     minutes
 
-## DIRECTIONS
+## Directions
 
 - Add 1 cup flour and mix for 3 minutes
 

@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 1# boneless, skinless chicken breast
 
 - 1# sliced crimini mushrooms
@@ -18,11 +22,11 @@
 
 - 1# fettuccine, cooked
 
-## PREP
+## Prep
 
 - Place large pan over med-high
 
-## DIRECTIONS
+## Directions
 
 - Heat 2 tbsp oil in pan
 

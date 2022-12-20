@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 3 lbs. chuck roast
 
 - 1 onion, sliced
@@ -24,13 +28,13 @@
 
 - Salt & pepper to taste
 
-## PREP
+## Prep
 
 - Trim excess fat from roast
 
 - Heat Dutch oven over med heat with a little oil
 
-## DIRECTIONS
+## Directions
 
 - Brown roast in pot
 

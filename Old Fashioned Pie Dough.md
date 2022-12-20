@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 225 g. a/p flour, plus more for dusting
 
 - 15 g. sugar
@@ -8,7 +12,7 @@
 
 - 115 g. cold water
 
-## DIRECTIONS
+## Directions
 
 - Whisk the flour, sugar, and salt in a medium bowl
 

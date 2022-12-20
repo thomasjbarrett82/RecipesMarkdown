@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 1 ½ cups white sugar
 
 - 2 cups Tang
@@ -12,12 +16,12 @@
 
 - ½ tsp. ground cloves
 
-## PREP
+## Prep
 
 - Mix all ingredients in airtight container
 
 - Can be stored for several months
 
-## DIRECTIONS
+## Directions
 
 - Mix 3 tsp. of mix in 1 cup of boiling water

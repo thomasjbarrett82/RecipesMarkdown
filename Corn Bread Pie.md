@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 1# fresh pork sausage
 
 - 1 cup yellow cornmeal
@@ -12,11 +16,11 @@
 
 - 1 cup milk
 
-## PREP
+## Prep
 
 - Heat oven to 425° F
 
-## DIRECTIONS
+## Directions
 
 - Brown pork sausage, and reserve ¼ cup drippings
 

@@ -1,3 +1,7 @@
+# Breakfast Cookies
+
+## Ingredients
+
 - 2 eggs
 
 - 1 cup sugar (240 g), plus extra
@@ -22,13 +26,13 @@
 
 - 1 cup butter, melted
 
-## PREP
+## Prep
 
 - Heat oven to 350 F
 
 - Set out two small plates with water and sugar
 
-## DIRECTIONS
+## Directions
 
 - Mix all ingredients in a large bowl
 

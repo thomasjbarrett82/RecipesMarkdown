@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 2 T. sugar
 
 - 1 T. kosher salt
@@ -16,13 +20,13 @@
 
 - Additional toppings, as desired
 
-## PREP
+## Prep
 
 - Prepare the dough 24 hours ahead
 
 - Preheat the oven to 500 degrees F and move rack to the bottom
 
-## DIRECTIONS
+## Directions
 
 - Put the sugar, salt, 1 T. oil, water, yeast, and flour into a bread
     machine or standing mixer bowl

@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 3-4 pound chuck roast
 
 - 1 tbsp. oil
@@ -22,7 +26,7 @@
 
 - Salt and pepper
 
-## DIRECTIONS
+## Directions
 
 - Heat IP to Sauté and add oil
 

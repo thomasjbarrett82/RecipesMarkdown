@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 1# ground Italian sausage
 
 - 1 onion, chopped
@@ -26,11 +30,11 @@
 
 - ¼ tsp salt
 
-## PREP
+## Prep
 
 - Place pan over med-high heat
 
-## DIRECTIONS
+## Directions
 
 - Cook sausage and crumble
 

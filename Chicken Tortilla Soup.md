@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 1 + 1 tbsp olive oil
 
 - 2# boneless chicken breast or thigh
@@ -20,11 +24,11 @@
 
 - Tortilla chips
 
-## PREP
+## Prep
 
 - Set large pot over medium heat
 
-## DIRECTIONS
+## Directions
 
 - Heat 1 tbsp oil in pot
 

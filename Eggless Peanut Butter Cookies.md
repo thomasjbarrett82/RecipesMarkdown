@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 1 cup shortening
 
 - 1 cup creamy peanut butter
@@ -16,13 +20,13 @@
 
 - ½ tsp salt
 
-## PREP
+## Prep
 
 - Heat oven to 375° F
 
 - Lightly grease cookie sheets
 
-## DIRECTIONS
+## Directions
 
 - In large bowl, thoroughly mix shortening, peanut butter, sugars, and
     buttermilk

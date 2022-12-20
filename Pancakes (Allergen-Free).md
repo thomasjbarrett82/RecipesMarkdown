@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 2 eggs OR egg-substitute equivalent
 
 - 2 tbsp sugar
@@ -14,11 +18,11 @@
 
 - ½ tsp salt
 
-## PREP
+## Prep
 
 - Heat skillet on medium-low
 
-## DIRECTIONS
+## Directions
 
 - Beat eggs (or substitute) with sugar until creamy
 

@@ -1,6 +1,6 @@
-# 
+# Baked Buffalo Wings
 
-## INGREDIENTS
+## Ingredients
 
 - 1 lb. chicken wings, cut into drumettes and flats
 
@@ -16,7 +16,7 @@
 
 - Carrot and celery sticks
 
-## PREP
+## Prep
 
 - Line a baking sheet with foil and set a wire rack inside
 
@@ -26,7 +26,7 @@
 
 - Place on rack and rest uncovered in fridge for 8-24 hours
 
-## DIRECTIONS
+## Directions
 
 - Heat oven to 450 F and move rack to upper-middle position
 

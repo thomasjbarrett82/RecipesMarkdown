@@ -1,3 +1,7 @@
+# Candy Cane Cookies
+
+## Ingredients
+
 - ½ cup shortening
 
 - ½ cup butter, softened
@@ -14,11 +18,11 @@
 
 - Red food coloring
 
-## PREP
+## Prep
 
 - Heat oven to 350 F
 
-## DIRECTIONS
+## Directions
 
 - In large bowl, cream together shortening, butter, egg, & extracts
 

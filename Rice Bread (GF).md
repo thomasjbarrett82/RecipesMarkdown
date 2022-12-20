@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 1 cup warm water
 
 - 1 tsp yeast
@@ -10,11 +14,11 @@
 
 - 1 tsp salt
 
-## DIRECTIONS
+## Directions
 
 - Stir yeast into 1 cup warm water and let sit to start fermenting
 
-## DIRECTIONS
+## Directions
 
 - Bring hot water to a slow boil
 

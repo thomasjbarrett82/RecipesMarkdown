@@ -1,6 +1,6 @@
-# 
+# Pulled Pork BBQ
 
-## INGREDIENTS
+## Ingredients
 
 - 1 whole pork butt, 5-7 pounds
 
@@ -24,13 +24,13 @@
 
 - 1 t. red pepper flakes
 
-## PREP
+## Prep
 
 - Mix spice rub together and cover pork with it
 
 - Let sit in fridge for 4-8 hours before cooking
 
-## DIRECTIONS
+## Directions
 
 - Place in BBQ smoker at 250 degrees F
 

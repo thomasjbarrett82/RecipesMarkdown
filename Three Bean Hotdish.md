@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 1# ground beef
 
 - ½ yellow onion, chopped
@@ -22,11 +26,11 @@
 
 - ½ tsp black pepper
 
-## PREP
+## Prep
 
 - Heat pan or skillet over med-high
 
-## DIRECTIONS
+## Directions
 
 - Place ground beef and onions in pan
 

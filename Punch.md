@@ -1,10 +1,14 @@
+# 
+
+## Ingredients
+
 - 2L bottle lemon-lime soda
 
 - 2L bottle ginger ale
 
 - 1 pint sherbet
 
-## DIRECTIONS
+## Directions
 
 - Mix sodas in a large punch bowl
 

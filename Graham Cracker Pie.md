@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - <u>Crust</u>
 
   - 1 ¾ cups graham cracker crumbs
@@ -32,13 +36,13 @@
 
   - ½ tsp vanilla extract
 
-## PREP
+## Prep
 
 - Separate egg whites from yolks
 
 - Heat oven to 350 F
 
-## DIRECTIONS
+## Directions
 
 - In medium bowl mix crumbs, butter, and sugar, and reserve 2 tbsp
 

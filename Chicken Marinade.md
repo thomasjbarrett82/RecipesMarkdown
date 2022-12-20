@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - ½ cup EVOO
 
 - ½ cup balsamic or apple cider vinegar
@@ -24,7 +28,7 @@
 
 - 6 chicken breasts (3-4 pounds)
 
-## PREP
+## Prep
 
 - Combine everything except chicken and whisk together
 

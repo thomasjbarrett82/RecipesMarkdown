@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 1# Andouille or Italian sausage
 
 - 1# chicken, chopped
@@ -34,13 +38,13 @@
 
 - 1 package sliced okra (thawed, if frozen)
 
-## PREP
+## Prep
 
 - Heat oven to 350° F
 
 - Heat oven-safe pan or large pot over med-high
 
-## DIRECTIONS
+## Directions
 
 - Brown sausage in pan or pot, remove with slotted spoon and set aside
 

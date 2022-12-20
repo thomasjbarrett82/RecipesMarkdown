@@ -1,6 +1,6 @@
-# 
+# Baked Feta Pasta
 
-## INGREDIENTS
+## Ingredients
 
 - 2 pints cherry tomatoes
 
@@ -24,11 +24,11 @@
 
 - 1 lb. chicken, cooked and shredded (optional)
 
-## PREP
+## Prep
 
 - Heat oven to 350 F
 
-## DIRECTIONS
+## Directions
 
 - Layer cherry tomatoes in casserole dish
 

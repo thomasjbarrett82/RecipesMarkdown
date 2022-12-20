@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 1 can sardines in oil
 
 - Lemon pepper
@@ -8,11 +12,11 @@
 
 - Toast
 
-## PREP
+## Prep
 
 - Heat the oven to 400
 
-## DIRECTIONS
+## Directions
 
 - Place a small cast iron or other oven-safe pan in the oven for 4
     minutes

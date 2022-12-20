@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 2 poblano, deseeded and halved lengthwise
 
 - 2 jalapenos, deseeded and halved lengthwise
@@ -26,11 +30,11 @@
 
 - 1 tsp. oregano
 
-## PREP
+## Prep
 
 - Roast the chilis and pepper under the broiler and chop
 
-## DIRECTIONS
+## Directions
 
 - Boil the potatoes until tender
 

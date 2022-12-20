@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 1 cup sugar
 
 - 1 cup butter
@@ -14,11 +18,11 @@
 
 - 1 tsp. vanilla
 
-## PREP
+## Prep
 
 - Heat oven to 350 F
 
-## DIRECTIONS
+## Directions
 
 - In medium bowl, cream sugar and butter
 

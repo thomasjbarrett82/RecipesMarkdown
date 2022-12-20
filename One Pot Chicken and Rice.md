@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 1 tbsp. EVOO
 
 - 2 lbs. chicken thighs
@@ -20,13 +24,13 @@
 
 - 2 cups chicken stock
 
-## PREP
+## Prep
 
 - Heat oven to 350 F
 
 - Heat EVOO in large heavy pan over med-high heat
 
-## DIRECTIONS
+## Directions
 
 - Add chicken to pan
 

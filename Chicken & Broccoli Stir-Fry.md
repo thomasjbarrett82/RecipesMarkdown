@@ -1,3 +1,7 @@
+# Chicken & Broccoli Stir Fry
+
+## Ingredients
+
 - 1 lb. boneless, skinless chicken breast, sliced thin
 
 - 1 ½ + ½ tbsp. cornstarch
@@ -26,17 +30,15 @@
 
 - 3 cups cooked rice
 
-## PREP
+## Prep
 
-- In a wide bowl, combine 1 ½ tbsp. cornstarch, sherry, salt & pepper,
-    for dredging the chicken.
+- In a wide bowl, combine 1 ½ tbsp. cornstarch, sherry, salt, & pepper for dredging the chicken.
 
-- In a small bowl, whisk ½ tbsp. cornstarch, soy sauce, broth, sugar,
-    ginger, red pepper, and set aside.
+- In a small bowl, whisk ½ tbsp. cornstarch, soy sauce, broth, sugar, ginger, red pepper, and set aside.
 
 - Heat wok or large heavy skillet over medium-high heat.
 
-## DIRECTIONS
+## Directions
 
 - Dredge the chicken strips in the mixture and set aside.
 

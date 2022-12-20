@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - Crust: (Use pre-made chocolate or graham crust to save time, if
     desired)
 
@@ -25,11 +29,11 @@
 
   - 2 tsp. vanilla extract
 
-## PREP
+## Prep
 
 - Heat oven to 350° F
 
-## DIRECTIONS
+## Directions
 
 - Combine cookies & almonds in food processor.
 

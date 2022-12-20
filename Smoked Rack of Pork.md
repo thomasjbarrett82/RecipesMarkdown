@@ -1,14 +1,18 @@
+# 
+
+## Ingredients
+
 - 1 rack of pork
 
 - BBQ spice rub
 
 - BBQ sauce
 
-## PREP
+## Prep
 
 - Heat smoker to 225 F
 
-## DIRECTIONS
+## Directions
 
 - Smother spice rub all over rack
 

@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 1 lb chicken breast
 
 - 1 tsp olive oil
@@ -22,11 +26,11 @@
 
 - ½ tsp black pepper
 
-## PREP
+## Prep
 
 - Heat a medium pan over medium-high heat
 
-## DIRECTIONS
+## Directions
 
 - Heat oil in pan
 

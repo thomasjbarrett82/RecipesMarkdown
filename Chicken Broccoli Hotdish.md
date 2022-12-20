@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 1 lb. chicken breast or thighs, cooked and chopped
 
 - 1 cup Cheddar, shredded
@@ -18,7 +22,7 @@
 
 - Salt & pepper
 
-## PREP
+## Prep
 
 - Cook and chop chicken
 
@@ -26,7 +30,7 @@
 
 - Heat oven to 350 F
 
-## DIRECTIONS
+## Directions
 
 - Combine everything in a greased casserole dish
 

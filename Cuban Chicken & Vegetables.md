@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 1 ½ - 2 lbs chicken, any kind
 
 - 2 bell peppers, cubed
@@ -26,11 +30,11 @@
 
 - ½ tsp black pepper
 
-## PREP
+## Prep
 
 - Heat oven to 500°F or a grill to med-high
 
-## DIRECTIONS
+## Directions
 
 - Lay out 2 large pieces of aluminum foil
 

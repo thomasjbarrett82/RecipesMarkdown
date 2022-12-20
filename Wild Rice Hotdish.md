@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 1 cup wild rice
 
 - 1 tbsp. EVOO
@@ -18,7 +22,7 @@
 
 - 1 cup mushrooms, diced
 
-## PREP
+## Prep
 
 - Rinse rice with warm water
 
@@ -26,7 +30,7 @@
 
 - Grease a large casserole dish
 
-## DIRECTIONS
+## Directions
 
 - Heat the oven to 325 F
 

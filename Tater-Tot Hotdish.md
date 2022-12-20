@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 1# ground beef
 
 - 1 package dry onion soup mix
@@ -13,11 +17,11 @@
 
 - Tater-tots
 
-## PREP
+## Prep
 
 - Heat large pan over med-high heat
 
-## DIRECTIONS
+## Directions
 
 - Brown beef in pan, drain and return
 

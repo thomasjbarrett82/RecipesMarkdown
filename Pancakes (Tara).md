@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 2 eggs
 
 - 2 tbsp sugar
@@ -14,11 +18,11 @@
 
 - ½ tsp salt
 
-## PREP
+## Prep
 
 - Heat skillet on medium
 
-## DIRECTIONS
+## Directions
 
 - Separate eggs
 

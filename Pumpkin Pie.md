@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - FOR THE CRUST
 
   - 1 ½ cups crushed GF graham crackers
@@ -32,13 +36,13 @@
 
   - 2 tsp pure vanilla extract
 
-## PREP
+## Prep
 
 - Heat oven to 400° F
 
-## DIRECTIONS
+## Directions
 
-- PREPARE CRUST:
+- PrepARE CRUST:
 
   - Place crackers in food processor and pulse until finely ground
 
@@ -50,7 +54,7 @@
 
   - Remove to cool
 
-- PREPARE FILLING:
+- PrepARE FILLING:
 
   - In large bowl, whisk together rice milk and egg substitute
 
@@ -60,6 +64,6 @@
 
   - Back until filling is set but slightly wobbly in center
 
-      - 40-45 minutes
+  - 40-45 minutes
 
-      - Toothpick inserted into center will come out mostly clean
+  - Toothpick inserted into center will come out mostly clean

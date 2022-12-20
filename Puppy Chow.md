@@ -1,3 +1,7 @@
+# 
+
+## Ingredients
+
 - 6 cups Crispix or Rice Chex
 
 - 1 stick butter
@@ -8,7 +12,7 @@
 
 - 1 ½ cup powdered sugar
 
-## DIRECTIONS
+## Directions
 
 - Pour cereal into a large bowl
 

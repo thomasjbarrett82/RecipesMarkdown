@@ -1,3 +1,7 @@
+# Candied Yams
+
+## Ingredients
+
 - 4# yams, sliced ½” thick
 
 - 1 tsp nutmeg
@@ -14,11 +18,11 @@
 
 - 1 bag baby marshmallows
 
-## PREP
+## Prep
 
 - Heat oven to 350°F
 
-## DIRECTIONS
+## Directions
 
 - Put yams into large pot and cover with water
 
