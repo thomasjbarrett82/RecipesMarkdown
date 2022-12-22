@@ -1,5 +1,7 @@
 # Artichoke Spinach Dip
 
+Source: Tara
+
 ## Ingredients
 
 - 10 ounce box frozen chopped spinach, thawed and drained

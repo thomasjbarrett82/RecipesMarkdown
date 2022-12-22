@@ -1,5 +1,7 @@
 # Black Bean Brownies (GF)
 
+Source: @bdylanhollis
+
 ## Ingredients
 
 - 15 ounce can black beans, drained and rinsed

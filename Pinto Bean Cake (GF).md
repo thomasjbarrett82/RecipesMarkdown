@@ -1,5 +1,7 @@
 # Pinto Bean Cake (GF)
 
+Source: @bdylanhollis
+
 ## Ingredients
 
 - 2 27 ounce cans pinto beans, drained
