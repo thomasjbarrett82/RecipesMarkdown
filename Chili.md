@@ -1,45 +1,29 @@
-# 
+# Chili
+
+Source: Tara
 
 ## Ingredients
 
-- 1# ground beef
-
-- ½ yellow onion, chopped
-
-- 1 green bell pepper, chopped
-
-- 1 red bell pepper, chopped
-
-- 1 package chili seasoning
-
-- ½ tsp tabasco sauce
-
-- 3 cloves garlic, minced
-
-- 1 can tomato sauce
-
-- 1 can tomato paste
-
-- 28 oz can diced tomatoes
-
-- 4 oz can diced green chiles
-
-- 1 can kidney beans, drained & rinsed
-
-- 1 can black beans, drained & rinsed
+- 2 lbs. ground beef
+- 2 onions, chopped
+- 4 bell peppers, chopped
+- 4 cans beans (mix of kidney and chili)
+- 2 cans stewed or diced tomatoes
+- 1 or 2 jalapenos, diced
+- 2 packages chili seasoning
+- 1 cup tortilla chips, crushed (optional)
 
 ## Prep
 
-- Place pan or skillet over med-high heat
+- Heat Dutch oven on medium
 
 ## Directions
 
-- Place beef, onion, and peppers in pan
-
-- Brown beef, drain and remove
-
-- Combine in crockpot with remaining ingredients
-
-- Cook at LOW for 5-6 hours
-
-- OR combine in large pot and simmer for 1 hour on stove top
+- Brown beef in pot
+- Add onions & peppers and cook for 5 minutes
+- Add remaining ingredients
+- Bring to a boil
+- Turn to low and cover
+- Add tortilla chips, if using
+- Cook for 2-3 hours
+- Serve with cheese and sour cream
