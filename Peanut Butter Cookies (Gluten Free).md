@@ -3,7 +3,7 @@
 ## Ingredients
 
 - 1 cup peanut butter
-- 1 cup sugar
+- 3/4 cup sugar
 - 1 tsp. vanilla extract
 - 1 egg
 
