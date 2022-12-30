@@ -1,19 +1,15 @@
-# 
+# Hot Chocolate Mix
 
 ## Ingredients
 
 - 6 oz. Coffee mate
-
 - ½ cup powdered sugar
-
 - 25 oz. powdered milk (makes 8 qt.)
-
 - 1 lb. powdered chocolate drink mix
 
 ## Prep
 
 - Mix all ingredients together
-
 - Store in airtight container
 
 ## Directions

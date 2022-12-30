@@ -6,10 +6,10 @@ Source: @bdylanhollis
 
 - 15 ounce can black beans, drained and rinsed
 - 2 tbsp. cocoa powder
-- 1/2 cup quick oats
+- 3/4 cup quick oats
 - 1/2 tsp. salt
-- 1/3 cup honey
-- 2 tbsp. sugar
+- 1/2 cup honey
+- 3 tbsp. sugar
 - 1/4 cup coconut/vegetable oil
 - 2 tsp. vanilla extract
 - 1/2 tsp. baking powder
@@ -18,7 +18,7 @@ Source: @bdylanhollis
 ## Prep
 
 - Heat oven to 350 F
-- Grease an 8x8 pan
+- Grease an 8x8 pan OR brownie pan
 
 ## Directions
 

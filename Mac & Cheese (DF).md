@@ -1,4 +1,4 @@
-# Mac & Cheese (Dairy Free)
+# Mac & Cheese (DF)
 
 ## Ingredients
 

@@ -1,33 +1,28 @@
-# 
+# Pancakes
+
+Source: Tara
 
 ## Ingredients
 
 - 2 eggs
-
-- 1 cup buttermilk
-
-- 1 cup whole milk
-
-- ¼ cup shortening, melted
-
-- 2 cups flour
-
-- 1 tsp. baking soda
-
-- 1 tsp. baking powder
-
-- 1/3 cup sugar
-
-- 1 tsp. salt
+- 2 tbsp sugar
+- 2/3 cup buttermilk
+- 2 tbsp oil
+- 1 ½ cup flour
+- 1 tsp baking powder
+- 1 tsp baking soda
+- ½ tsp salt
 
 ## Prep
 
-- Heat griddle to 375 F
+- Heat skillet on medium
 
 ## Directions
 
-- In a small bowl, beat the eggs well
-
-- Fold into the other ingredients, but don’t over mix
-
-- Fry on the griddle until golden brown
+- Separate eggs
+- Beat whites into peaks and set aside
+- Beat yolks with sugar until creamy
+- Add buttermilk and oil and mix well
+- Mix in remaining ingredients
+- Fold in the egg whites and let sit for 5 minutes
+- Drop onto hot skillet by ¼ cupful and cook until golden brown on each side
