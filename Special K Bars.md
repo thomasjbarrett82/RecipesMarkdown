@@ -3,25 +3,21 @@
 ## Ingredients
 
 - 1 cup light corn syrup
-- 2 cups white sugar
-- 2 cups peanut butter
-- 6 cups Special K cereal
+- 1 cup white sugar
+- 1 + 1/2 cups peanut butter (or other nut butter)
+- 6 cups Special K cereal (or Rice Krispies, etc.)
 - 12 oz semi-sweet chocolate chips
 - 6 oz butterscotch chips
-
-## Prep
-
-- Place saucepot over medium-low heat
+- 1 tbsp. butter
 
 ## Directions
 
-- Add corn syrup and sugar to pot
-- Heat just until boiling, and remove from heat
-- Mix in the peanut butter
-- Pour cereal into a greased casserole dish
-- Pour peanut butter mixture over cereal and mix together
-- Pat down into dish
-- Put chips into pot
-- Heat just until melted, stirring constantly to avoid burning
+- Add corn syrup and sugar to large bowl
+- Microwave in 30 second intervals, stirring, until just boiling
+- Mix in 1 cup peanut butter
+- Stir in cereal until combined
+- Pour into a greased casserole dish and press flat
+- Add 1/2 cup peanut butter, chips, and butter to medium bowl
+- Microwave in 30 second intervals, stirring, until melted
 - Pour evenly over cereal to frost
-- Let cool and harden before cutting into bars
+- Refrigerate for 30+ minutes before cutting into bars
