@@ -1,39 +1,43 @@
 # Apple Pie
 
+- Source: Serious Eats (BraveTart)
+
 ## Ingredients
 
-- 5 lbs. apples, peeled, cored, and sliced ½ inch thick (Golden Delicious or Braeburn) (2.25 kg.)
-- ¾ cup sugar (150 g.)
-- 2 T. cornstarch (15 g.)
-- ½ t. ground cinnamon
-- 2 t. fresh juice and 1 t. grated zest from 1 lemon
-- 1 t. kosher salt
-- 1 recipe Easy Pie Dough (or 2 store-bought disks)
-- 1 egg white
-- 1 T. sugar
+- Filling
+  - 6-7 tart apples, like Granny Smith (6-7 apples)
+  - 1 cup brown sugar
+  - 2 tsp. cinnamon
+  - 1 tsp. kosher salt
+  - 1/4 tsp. ground ginger
+  - 1/4 tsp. nutmeg
+  - 1/4 tsp. cloves
+- 1/4 cup cornstarch or tapioca starch
+- Pie crust (2 pieces)
+- 1 egg
+- 1 tbsp. cream
+- 1/4 tsp. kosher salt
 
 ## Prep
 
-- Preheat oven to 425 degrees F
-- Preheat Dutch oven on stovetop on low heat
+- Peel and core the apples, then slice into 1/2 inch wedges
+- Combine filling ingredients in large ziploc bag
+- Toss to combine and let sit at least 3 hours to macerate
+- Flip occasionally to distribute the syrup
+- Can be held up to 8 hours in the fridge
 
 ## Directions
 
-- Toss apple slices with sugar, cornstarch, cinnamon, juice, zest, and salt
-- Let rest for 10 minutes
-- Transfer to the Dutch oven and cook, stirring frequently
-- Keep the temperature below 160 degrees F for at least 20 minutes
-- Increase heat to med-high and stir until juices are thickened
-- Transfer to a large baking sheet and spread out to cool completely (1 hour)
-- Roll dough disks out to 12 inches
-- Lay the first disk in the bottom of a 9-inch pie plate
-- Add filling to the pie
-- Lay the second disk over the filling
-- Trim the dough edges so that they overhang by ½ inch
-- Fold the edges under each other but over the plate lip, and crimp
-- Cut 5 slits in the pie top for ventilation
-- Brush the egg white all over the top with a pastry brush
-- Sprinkle evenly with 1 T. of sugar
-- Bake until light golden brown (20 minutes)
-- Reduce heat to 350 degrees F and continue until deep golden brown (25 minutes)
-- Remove and let cool for 4 hours before serving
+- Add starch to filling, reseal and toss to combine
+- Place bottom pie crust into 8" or 9" pie pan
+- Pour filling into pie pan
+- Drape top pie crust over filling
+- Pinch and trim the edges
+- Place in the fridge for 30-60 minutes until cold and firm
+- Preheat oven to 400 F before cooking and put rack on low-middle
+- Whisk egg, cream, salt
+- Brush the egg wash over the chilled pie crust
+- Use a sharp knife to cut vents on the top crust
+- Place pie on a lined sheet pan in the oven
+- Bake for 65-75 minutes until 195 F in the center
+- Remove and cool at least 1 hours before serving
