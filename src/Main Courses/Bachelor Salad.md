@@ -4,12 +4,12 @@
 
 ### Dressing
 
-  - ½ cup balsamic vinegar
-  - 2 tsp Dijon mustard
-  - 1 tsp minced garlic
-  - 1 tbsp honey
-  - 1 tsp thyme
-  - 1 cup olive oil
+- ½ cup balsamic vinegar
+- 2 tsp Dijon mustard
+- 1 tsp minced garlic
+- 1 tbsp honey
+- 1 tsp thyme
+- 1 cup olive oil
 
 ### Salad
 
