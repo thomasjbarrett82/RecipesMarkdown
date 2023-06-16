@@ -71,28 +71,34 @@ Source: Tom
 - Steaming in a bowl with a trivet, 1 cup of water underneath, is the preferred method.
 - Natural release adds a little cooking time.
 
-| Vegetables        | Fresh, Minutes    | Frozen, Minutes   |
-|:------------------|:------------------|:------------------|
-| | | |
-| | | |
-| | | |
-| | | |
-| | | |
-| | | |
-| | | |
-| | | |
-| | | |
-| | | |
-| | | |
-| | | |
-| | | |
-| | | |
-| | | |
-| | | |
-| | | |
-| | | |
-| | | |
-| | | |
+| Vegetables            | Fresh, Minutes    | Frozen, Minutes   |
+|:----------------------|:------------------|:------------------|
+| Artichoke hearts      | 4-5               | 5-6               |
+| Asparagus             | | |
+| Beans/peas            | | |
+| Beets                 | | |
+| Bell pepper           | | |
+| Broccoli              | | |
+| Brussel sprouts       | | |
+| Cabbage               | | |
+| Carrots               | | |
+| Cauliflower           | | |
+| Celery                | | |
+| Corn                  | | |
+| Eggplant              | | |
+| Greens                | | |
+| Leeks/onions          | | |
+| Okra                  | | |
+| Parsnips              | | |
+| Potatoes, cubed       | | |
+| Potatoes, whole       | | |
+| Pumpkin               | | |
+| Rutabaga              | | |
+| Spinach               | | |
+| Squash                | | |
+| Sweet potato, cubed   | | |
+| Sweet potato, whole   | | |
+| Tomatoes              | | |
 
 ## Fruits
 
